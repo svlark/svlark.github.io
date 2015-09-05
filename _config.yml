@@ -1,8 +1,8 @@
 # Site settings
-title: Travelogue
+title: s/v Lark
 
 baseurl: '' # the subpath of your site, e.g. /blog
-url: 'http://yourdomain.com' # the base hostname & protocol for your site
+url: 'http://svlark.com' # the base hostname & protocol for your site
 
 # Build settings
 markdown:            kramdown
@@ -23,10 +23,10 @@ defaults:
         path: '_posts'
         type: 'posts'
       values:
-        reading_time: true
+        reading_time: false
         # Meta
         show_tags: true
-        show_categories: true
+        show_categories: false
         # Social
         share_buttons: true
         disqus: true
