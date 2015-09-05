@@ -3,12 +3,12 @@ facebook: true
 twitter: true
 googleplus: true
 linkedin: false
-reddit: true
-hackernews: true
-pinterest: false
+reddit: false
+hackernews: false
+pinterest: true
 tumblr: false
-pocket: true
-email: false
+pocket: false
+email: true
 
 # Disqus
-disqus_shortname: 'example'
+disqus_shortname: 'svlark'
