@@ -20,9 +20,7 @@ I searched for a course in Florida and found a couple, but they weren’t being 
 Nothing too exciting today, other than flying alone for the first time since having babies. It is a luxury to read a magazine and nap! I know I will miss those guys like crazy very soon, but I’m also really happy for the ME time.
 
 ![waiting](http://lh3.googleusercontent.com/-Sx8L1OpiafE/VepFFV3rwwI/AAAAAAAAe2o/AKRtRH2Ogjw/s640/blogger-image-1252839749.jpg "me...alone...waiting to board the plane")
-</br>
 me...alone...waiting to board the plane
 
 ![running](http://lh3.googleusercontent.com/-W84iUatbK8c/VepFIRS7FrI/AAAAAAAAe2w/w6U1qJozW4g/s640/blogger-image-1499079379.jpg "running from the big plane in Seattle to the little plane to get me to Bellingham by midnight")
-</br>
 running from the big plane in Seattle to the little plane to get me to Bellingham by midnight
