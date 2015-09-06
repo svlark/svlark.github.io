@@ -1,10 +1,9 @@
 ---
 layout: post
 title: April's Adventures in the San Juan Islands - Day 2
-date: '2015-09-05T21:00:00.000-04:00'
+date: '2015-09-0'
 author: April
 tags:
-modified_time: '2015-09-05T21:00:00.000-04:00'
 thumb: http://lh3.googleusercontent.com/-UUM4Wt-DPM8/Veut7C8vxgI/AAAAAAAAe3g/EQSL-y__AKU/s640/blogger-image--1125810891.jpg
 backgrounds:
 - http://lh3.googleusercontent.com/-UUM4Wt-DPM8/Veut7C8vxgI/AAAAAAAAe3g/EQSL-y__AKU/s640/blogger-image--1125810891.jpg
