@@ -2,15 +2,14 @@ TODO
 ==========
 * default bg image
 * default thumb
-* hide homeschool-tagged posts
-    main page
-    archive
-    thumbnail
+* ~~hide homeschool-tagged posts~~
+* main page
+* archive
 * font
 * sidebar
 * blogroll
 * previous story
-* dns
+* ~~dns~~
 * 404
 * grainy thumbs
 * move images from blogspot
