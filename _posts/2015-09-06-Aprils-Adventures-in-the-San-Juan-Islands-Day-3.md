@@ -1,7 +1,8 @@
 ---
-title: "April's Adventures in the San Juan Islands: Day 3"
-author: "April"
-date: "2015-09-06"
+layout: post
+title: April's Adventures in the San Juan Islands: Day 3
+author: April
+date: 2015-09-06
 thumb: http://lh3.googleusercontent.com/-WNRwG1LcFvk/Ve0BpqenlBI/AAAAAAAAe4g/ZvzmA5tfDF8/s1600/blogger-image-386363611.jpg
 backgrounds:
 - http://lh3.googleusercontent.com/-1nhRl6qDc4o/Ve0BwtsLYfI/AAAAAAAAe4w/p_2WSWOHIxY/s1600/blogger-image-743106615.jpg
@@ -9,6 +10,7 @@ backgrounds:
 - http://lh3.googleusercontent.com/-6nCy366GN3Q/Ve0B2l5UD1I/AAAAAAAAe5A/S57ZGJyuymw/s640/blogger-image--1080776102.jpg
 ---
 
+![](http://4.bp.blogspot.com/-DqCdDfpZu3I/Ve0Kh2lkFmI/AAAAAAAAFwA/Rs3jP864PJs/s640/Screen%2BShot%2B2015-09-06%2Bat%2B11.12.41%2BPM.png)
 Our route today ([on Trip30](https://www.trip30.com/trips/e0ce1150-c4d3-4388-830a-cd1e68d9702c))
 
 
