@@ -1,6 +1,6 @@
 ---
-title: April's Adventures in the San Juan Islands: Day 3
-author: April
+title: "April's Adventures in the San Juan Islands: Day 3"
+author: "April"
 date: "2015-09-06"
 thumb: http://lh3.googleusercontent.com/-WNRwG1LcFvk/Ve0BpqenlBI/AAAAAAAAe4g/ZvzmA5tfDF8/s1600/blogger-image-386363611.jpg
 backgrounds:
