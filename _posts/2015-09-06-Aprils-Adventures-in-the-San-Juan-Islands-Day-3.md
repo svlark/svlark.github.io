@@ -9,8 +9,6 @@ backgrounds:
 - http://lh3.googleusercontent.com/-6nCy366GN3Q/Ve0B2l5UD1I/AAAAAAAAe5A/S57ZGJyuymw/s640/blogger-image--1080776102.jpg
 ---
 
-![](http://4.bp.blogspot.com/-DqCdDfpZu3I/Ve0Kh2lkFmI/AAAAAAAAFwA/Rs3jP864PJs/s1600/Screen%2BShot%2B2015-09-06%2Bat%2B11.12.41%2BPM.png)
-
 Our route today ([on Trip30](https://www.trip30.com/trips/e0ce1150-c4d3-4388-830a-cd1e68d9702c))
 
 
