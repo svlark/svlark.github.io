@@ -1,5 +1,7 @@
 TODO
 ==========
+* analytics
+* captions
 * default bg image
 * default thumb
 * ~~hide homeschool-tagged posts~~
