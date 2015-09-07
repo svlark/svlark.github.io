@@ -10,7 +10,7 @@ backgrounds:
 - http://lh3.googleusercontent.com/-Qb_Yd7UERqU/Veut9lndpbI/AAAAAAAAe3o/hoQwHnk5vkQ/s640/blogger-image--475033106.jpg
 ---
 
-![route](http://1.bp.blogspot.com/-tdK2cregesc/Veus63mBjTI/AAAAAAAAe3U/TzbKx-7pTfo/s1600/Screen%2BShot%2B2015-09-05%2Bat%2B10.35.51%2BPM.png "Our route today")
+![route](http://1.bp.blogspot.com/-qN3HWNUNWLE/Veuxh4Z-7NI/AAAAAAAAe4M/GpgVZaNUXSc/s1600/Screen%2BShot%2B2015-09-05%2Bat%2B11.21.54%2BPM.png "Our route today")
 
 Our route today ([on Trip30](https://www.trip30.com/trips/e0ce1150-c4d3-4388-830a-cd1e68d9702c))
 
