@@ -1,6 +1,6 @@
 TODO
 ==========
-* analytics
+* ~~analytics~~
 * captions
 * default bg image
 * default thumb
