@@ -1,17 +1,20 @@
 TODO
 ==========
 * ~~analytics~~
-* captions
-* default bg image
-* default thumb
+* ~~about picture~~
 * ~~hide homeschool-tagged posts~~
-* main page
+* ~~dns~~
 * archive
 * font
 * sidebar
 * blogroll
 * previous story
-* ~~dns~~
+* default bg image
+* default thumb
+* captions
+* mobile
 * 404
 * grainy thumbs
 * move images from blogspot
+* tags
+* backgrounds

@@ -3,7 +3,7 @@ layout: page
 title: About
 permalink: /about-us/
 backgrounds:
-- http://3.bp.blogspot.com/-xkDU9L_Ayg8/UZBI9GVEHMI/AAAAAAAAaXY/1xMdWoS7Q8E/s640/IMG_8763.JPG``
+- http://lh3.googleusercontent.com/-mKEx2RvLUSk/VWEvpMC8yxI/AAAAAAAAecE/zu07raO2VIg/s640/blogger-image-323423667.jpg
 ---
 This is us. We live in Ft. Pierce, Florida for now.  Our adventures have taken us from Deadhorse to Moose Factory, from Caniapiscau to Kodiak, and from James Bay to the Yucatan. Now we aspire to sail slowly around the world with our little family.
 
