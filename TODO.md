@@ -4,7 +4,8 @@ TODO
 * ~~about picture~~
 * ~~hide homeschool-tagged posts~~
 * ~~dns~~
-* archive
+* image template including href
+* archive bg
 * font
 * sidebar
 * blogroll
