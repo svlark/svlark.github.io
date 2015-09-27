@@ -1,0 +1,14 @@
+Index: TODO.md
+IDEA additional info:
+Subsystem: com.intellij.openapi.diff.impl.patch.CharsetEP
+<+>UTF-8
+===================================================================
+--- TODO.md	(date 1441765631000)
++++ TODO.md	(revision )
+@@ -1,5 +1,6 @@
+ TODO
+ ==========
++* image captions
+ * default bg image
+ * default thumb
+ * ~~hide homeschool-tagged posts~~

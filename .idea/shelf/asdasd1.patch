@@ -1,0 +1,16 @@
+Index: _sass/_layout.scss
+IDEA additional info:
+Subsystem: com.intellij.openapi.diff.impl.patch.CharsetEP
+<+>UTF-8
+===================================================================
+--- _sass/_layout.scss	(revision 334f5e0cd90054ee13cce54c91e241f393ed39bc)
++++ _sass/_layout.scss	(revision )
+@@ -16,7 +16,7 @@
+     z-index: 10;
+ 
+     @include media-query($on-palm) {
+-        background: rgba($background-color, .95);
++        background: rgba($background-color, .75);
+         width: 100%;
+     }
+ }

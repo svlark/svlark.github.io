@@ -2,11 +2,31 @@
 <div class="next-post">
     <a href="{{ page.next.url | prepend: site.baseurl }}" class="next-post-link"></a>
 
+    {% if page.next.thumb %}
     <img src="{{ page.next.thumb }}" class="next-post-thumb" />
+    {% else %}
+    <img src="http://4.bp.blogspot.com/-XFdO-NZkZjM/VgdXajzKZGI/AAAAAAAAFzk/EmwDYINhAMQ/s1600/larksailing.jpg" class="next-post-thumb" />
+    {% endif %}
 
     <div class="next-post-info">
         <span class="next-story">Next Story</span>
         <h3 class="next-post-title">{{ page.next.title }}</h3>
+    </div>
+</div>
+{% endif %}
+{% if page.previous %}
+<div class="previous-post">
+    <a href="{{ page.previous.url | prepend: site.baseurl }}" class="next-post-link"></a>
+
+    {% if page.previous.thumb %}
+    <img src="{{ page.previous.thumb }}" class="next-post-thumb" />
+    {% else %}
+    <img src="http://4.bp.blogspot.com/-XFdO-NZkZjM/VgdXajzKZGI/AAAAAAAAFzk/EmwDYINhAMQ/s1600/larksailing.jpg" class="next-post-thumb" />
+    {% endif %}
+
+    <div class="next-post-info">
+        <span class="next-story">Previous Story</span>
+        <h3 class="next-post-title">{{ page.previous.title }}</h3>
     </div>
 </div>
 {% endif %}

@@ -1,0 +1,16 @@
+Index: _config.yml
+IDEA additional info:
+Subsystem: com.intellij.openapi.diff.impl.patch.CharsetEP
+<+>UTF-8
+===================================================================
+--- _config.yml	(revision 334f5e0cd90054ee13cce54c91e241f393ed39bc)
++++ _config.yml	(revision )
+@@ -10,7 +10,7 @@
+ permalink:           :year/:month/:title.html
+ 
+ pagination:          true
+-paginate:            8
++paginate:            12
+ paginate_path:       page/:num/
+ 
+ sass:
