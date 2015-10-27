@@ -1,6 +1,6 @@
 ---
-layout: Daddy Daughter Dinghy Date
-title:
+layout: post
+title: Daddy Daughter Dinghy Date
 date: 2015-10-26
 author: Jacob
 tags: dinghy, kids, homeschooling
