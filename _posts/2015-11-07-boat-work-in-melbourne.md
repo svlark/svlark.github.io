@@ -10,7 +10,7 @@ backgrounds:
 - http://lh3.googleusercontent.com/-1nhRl6qDc4o/Ve0BwtsLYfI/AAAAAAAAe4w/p_2WSWOHIxY/s1600/blogger-image-743106615.jpg
 ---
 
-Image: ![Melbourne Harbor panorama](https://lh3.googleusercontent.com/-8bRnHwCNjyc/VkAQHOt_cCI/AAAAAAAAGLs/LC8c6wvONjU/s640/blogger-image-224039227.jpg)
+![Melbourne Harbor panorama](https://lh3.googleusercontent.com/-8bRnHwCNjyc/VkAQHOt_cCI/AAAAAAAAGLs/LC8c6wvONjU/s640/blogger-image-224039227.jpg)
 
 This is theoretically our last full weekend in Melbourne, the plan being to head down to Vero on the 15th and Lake Worth the next weekend. The 15th, by the way, will mark the beginning of our 13th month living aboard Lark.  But we have so much left to do here.
 
@@ -20,7 +20,7 @@ Another big item has been tweaking the prop.  Old Perky has never been able to g
 
 The jobs we had planned to finish in Melbourne but have yet even to begin are many.  Nav light wiring, autopilot wiring, command mic wiring, replacing bilge pump hoses.  Maybe we'll stay another week or so to deal with those while we still have a car.  Or maybe we'll head out and finish them up like real cruisers would, with uber, buses, and walking around.
 
-Image: ![A big tree](https://lh3.googleusercontent.com/-jcntF0l9aBo/VkAP3KLCgEI/AAAAAAAAGLc/GP0KkWqHoFw/s640/blogger-image-597363289.jpg)
+![A big tree](https://lh3.googleusercontent.com/-jcntF0l9aBo/VkAP3KLCgEI/AAAAAAAAGLc/GP0KkWqHoFw/s640/blogger-image-597363289.jpg)
 
-Image: ![L ratlines](https://lh3.googleusercontent.com/-54KMMc6JQ5I/VkAQIKkzX6I/AAAAAAAAGL0/edSgDtgTGS8/s640/blogger-image--1020832546.jpg)
+![L ratlines](https://lh3.googleusercontent.com/-54KMMc6JQ5I/VkAQIKkzX6I/AAAAAAAAGL0/edSgDtgTGS8/s640/blogger-image--1020832546.jpg)
 
