@@ -18,7 +18,7 @@ The main projects that have gotten attention during our time here relate to Lark
 
 Another big item has been tweaking the prop.  Old Perky has never been able to get up to full RPMs and thus not to full power.  We were maxing out at 2100 rpm no matter how much throttle we pulled.  I'd long suspected that he was over-propped, but wasn't sure of the exact dimensions of the prop. We got a diver to pull the prop for us and sure enough, it was a 17x9 -- too big and with too much pitch.  So we're having prop the converted to 15x8.  This should allows us to get the engine up to 3600 rpm and cruise at around 3000. 
 
-The jobs we had planned to finish in Melbourne but have yet even to begin are many.  Nav light wiring, autopilot wiring, command mic wiring, replacing bilge pump hoses.  Maybe we'll stay another week or so to deal with those while we still have a car.  Or maybe we'll head out and finish them up like real cruisers would, with uber, buses, and walking around.
+The jobs we had planned to finish in Melbourne but have yet even to begin are many.  Off the top of my head, we still need to fix nav light wiring, autopilot wiring, command mic wiring, and replace bilge pump hoses .  Maybe we'll stay another week or so to deal with those while we still have a car.  Or maybe we'll head out and finish them up like real cruisers would, with uber, buses, and walking around.
 
 ![A big tree](https://lh3.googleusercontent.com/-jcntF0l9aBo/VkAP3KLCgEI/AAAAAAAAGLc/GP0KkWqHoFw/s640/blogger-image-597363289.jpg)
 
