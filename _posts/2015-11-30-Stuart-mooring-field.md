@@ -1,6 +1,6 @@
 ---
 layout: post
-title:
+title: Stuart!
 date: 2015-11-30
 author: Jacob
 tags: Stuart, Piper, mooring
