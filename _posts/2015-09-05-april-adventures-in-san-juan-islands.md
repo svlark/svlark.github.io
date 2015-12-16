@@ -12,7 +12,7 @@ backgrounds:
 
 ![route](http://4.bp.blogspot.com/-DqCdDfpZu3I/Ve0Kh2lkFmI/AAAAAAAAFwA/Rs3jP864PJs/s640/Screen%2BShot%2B2015-09-06%2Bat%2B11.12.41%2BPM.png "Our route today")
 
-Our route today ([on Trip30](https://www.trip30.com/trips/e0ce1150-c4d3-4388-830a-cd1e68d9702c))
+Our route today ([on Trip30](https://www.trip30.com/shared/2bb465cd-f04f-4483-96eb-6901c17836bf))
 
 
 I slept in a little longer than planned and had to and make a mad rush in a cab to Target for a bathing suit. I forgot mine at the boat, but there was a promise of a hot tub halfway through our cruise, and I really didn’t want to have to skip it! I think I looked a little silly with my gigantic duffle bag in the cart looking for a bathing suit, which are all on clearance because it is so late in the season here! I did find one though, although it is separates, and they don’t match. Oh well. I called the same cabby to pick me up again, and made it just in time for our 12pm check in at the marina.
