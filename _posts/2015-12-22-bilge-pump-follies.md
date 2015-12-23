@@ -1,6 +1,6 @@
 ---
 layout: post
-title:
+title: Bilge Pump Follies
 date: 2015-12-22
 author: Jacob
 tags: boat jobs, repair, bilge pump, hose
