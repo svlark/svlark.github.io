@@ -1,6 +1,6 @@
 ---
 layout: post
-title:
+title: Wasting away in REDACTED
 date: 2016-01-24
 author: Jacob
 tags: Perkins, solar, power
