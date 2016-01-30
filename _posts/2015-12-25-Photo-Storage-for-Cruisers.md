@@ -3,7 +3,7 @@ layout: post
 title: Photo Storage for Cruisers
 date: 2015-12-25
 author: Jacob
-tags: 
+tags: photos, tips
 ---
 
 We've never had a decent strategy for storing and backing up photos, either now or when we lived on dirt.  As a Christmas present to April this year, I have finally developed that strategy.  The following is mainly based on [Stammy's post](http://paulstamatiou.com/storage-for-photographers-part-2/) and adapted for life on 12 volts and water water everywhere.
