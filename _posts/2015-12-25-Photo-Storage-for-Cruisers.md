@@ -21,4 +21,4 @@ We're not actually willing to completely let go of full resolution so we have ye
 
 Altogether then, each camera photo will live as one copy on the original camera card, be transferred to the two local drives before it's erased from the camera card, and finally uploaded to Google Photos and CrashPlan.  So long term there will be four permanent copies of each camera photo.  Phone pictures will be immediately uploaded to Google as soon as there's a cellular signal.  They'll be tranferred to the local drives before they're erased from the phone, and then backed up to CrashPlan, so that for phone pictures too from the first download on there are always at least 2 copies and ultimately 4 permanent copies.
 
-Hope you like your present, babe!
+Hope you liked your present, babe!
