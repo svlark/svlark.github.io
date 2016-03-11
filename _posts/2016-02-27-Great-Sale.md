@@ -14,7 +14,7 @@ backgrounds:
 
 ![pano](https://lh3.googleusercontent.com/-DeUEPFvncnk/VuI5u84bu6I/AAAAAAAEECw/SLLksFH9NZY/s640/blogger-image-1040512081.jpg)
 
-We left West End early, for me at least, at 7:30a. We had to get up at 6a to make that happen. There is so much to do in order to make a sailboat ready to go! 
+We left West End early, for me at least, at 7:30a on 2/27/2016. We had to get up at 6a to make that happen. There is so much to do in order to make a sailboat ready to go! 
 
 Lots of people from the Old Bahama Bay marina were heading towards Great Sale, as it was the first mild day since the previous weekend, when we’d  crossed from Florida. 
 
