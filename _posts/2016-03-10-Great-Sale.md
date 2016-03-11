@@ -1,7 +1,7 @@
 ---
 layout: post
 title: Little Bahama Banks, West End to Great Sale.
-date: 2016-02-27
+date: 2016-03-10
 author: April
 tags: Bahamas, West End, Great Sale, Little Bahama Banks
 thumb: https://lh3.googleusercontent.com/-DeUEPFvncnk/VuI5u84bu6I/AAAAAAAEECw/SLLksFH9NZY/s640/blogger-image-1040512081.jpg
