@@ -9,6 +9,7 @@ backgrounds:
 - https://lh3.googleusercontent.com/-qftAnbCiQEU/VuI5xqifNkI/AAAAAAAEEC0/A3T2WPtZ_Nw/s640/blogger-image-243640801.jpg
 - https://lh3.googleusercontent.com/-__4QhZ5C7Bw/Vtycn39rMuI/AAAAAAAAhBs/3sD80yqjMfw/s640/blogger-image-1971453330.jpg
 - https://lh3.googleusercontent.com/-gDkXZxZ7lWM/Vt7yBtd7MSI/AAAAAAAAhCw/1EKJzZNWhpA/s640/blogger-image--1567804109.jpg
+- https://lh3.googleusercontent.com/-ya-u29c6ago/Vtyb__k6hTI/AAAAAAAAhBo/tQ3jxHSVBD0/s640/blogger-image--1337492899.jpg
 ---
 
 ![pano](https://lh3.googleusercontent.com/-DeUEPFvncnk/VuI5u84bu6I/AAAAAAAEECw/SLLksFH9NZY/s640/blogger-image-1040512081.jpg)
