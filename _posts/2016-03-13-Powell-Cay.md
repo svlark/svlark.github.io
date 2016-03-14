@@ -1,9 +1,9 @@
 ---
 layout: post
-title:
-date: 2015-09-06
+title: Great Sale to Powell Cay
+date: 2016-03-13
 author: April
-tags:
+tags: Great Sale, Powell, kid boats, sand dollar, sea biscuit, fire
 thumb: https://3.bp.blogspot.com/-mh7RnKPmDyw/VuIzocmSHRI/AAAAAAAAhFQ/sM5A-2cfJectZy2vhVZJGkt_-ZYMs_Z3g/s1600/DSC00049.jpg
 backgrounds:
 - https://lh3.googleusercontent.com/-DseKkkTYv9E/VuIw8C1YzUI/AAAAAAAAhEk/zjOte21nm9w/s640/blogger-image--1411784167.jpg
