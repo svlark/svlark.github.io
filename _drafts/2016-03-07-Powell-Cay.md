@@ -10,7 +10,7 @@ backgrounds:
 - https://4.bp.blogspot.com/-7xpSYeV6kL8/VuIzm_9jXsI/AAAAAAAAhFM/FDz9pg_pbmMhoOK__nPkfpcZTN6z9IoPA/s1600/DSC00013.jpg
 ---
 
-![delorme](https://lh3.googleusercontent.com/-zFJAqsAwfp0/Vt70s_mWfbI/AAAAAAAAhDw/r70AVvas0Fo/s640/blogger-image-657444278.jpg)
+![delorme](https://3.bp.blogspot.com/-itwQ1ZFc--I/VuYhAAogXDI/AAAAAAAEENQ/CKRHy7wtDXsYK8FqZPCIb-Bztd7Zp7w-w/s1600/Screen%2BShot%2B2016-03-13%2Bat%2B10.23.03%2BPM.png)
 ![snorkel](https://4.bp.blogspot.com/-7xpSYeV6kL8/VuIzm_9jXsI/AAAAAAAAhFM/FDz9pg_pbmMhoOK__nPkfpcZTN6z9IoPA/s1600/DSC00013.jpg)
 
 So far I am truly loving living aboard and being in the Bahamas. This is the way I imagined life would be. Exploring new towns, small quiet anchorages, bonfires on the beach, friendly cruisers and locals, and new children for the girls to play with. It is hard to imagine going back to the states right now. 
