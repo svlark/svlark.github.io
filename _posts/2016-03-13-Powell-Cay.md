@@ -17,9 +17,12 @@ backgrounds:
 So far I am truly loving living aboard and being in the Bahamas. This is the way I imagined life would be. Exploring new towns, small quiet anchorages, bonfires on the beach, friendly cruisers and locals, and new children for the girls to play with. It is hard to imagine going back to the states right now. 
 
 ![conch](https://4.bp.blogspot.com/-Eh1vnmm3Zmg/VuIzgp2HNiI/AAAAAAAAhFE/kPSVPLc0h8AVFo3n9X8yMThSSsijwzJXQ/s1600/DSC00016.jpg)
+
 ![sticks](https://3.bp.blogspot.com/-4M3hbFn11wA/VuIzkVh_IgI/AAAAAAAAhFI/chz9oYGRIyYcE1SrSc88pahoCsN4mzP7g/s1600/DSC00045.jpg)
 
-Powell Cay was truly amazing. We pulled into the quiet anchorage with a handful of other boats. Jacob inflated the dinghy and we went ashore to explore. The beach was lovely, and we were the only ones there at first. This particular beach was full of sea biscuits, mostly living. They camouflage by covering themselves with treasure, and we loved picking them up and watching their tiny little hairs moving. We did find a couple of dead ones too, which are really beautiful treasures. 
+Powell Cay was amazing. We pulled into the quiet anchorage with a handful of other boats. Jacob inflated the dinghy and we went ashore to explore. The beach was lovely, and we were the only ones there at first. This particular beach was full of sea biscuits, mostly living. They camouflage by covering themselves with treasure, and we loved picking them up and watching their tiny little hairs moving. We did find a couple of dead ones too, which are really beautiful treasures. 
+
+![lo](https://lh3.googleusercontent.com/-UZ3LPmNeOGY/VuIw10ja7FI/AAAAAAAAhEg/1J4lb97PUyU/s640/blogger-image-120960825.jpg)
 
 ![starfish and sand dollar](https://3.bp.blogspot.com/-mh7RnKPmDyw/VuIzocmSHRI/AAAAAAAAhFQ/sM5A-2cfJectZy2vhVZJGkt_-ZYMs_Z3g/s1600/DSC00049.jpg)
 
@@ -30,7 +33,5 @@ On our walk back to the boat Jacob suggested that we make a bonfire and roast ho
 ![tree](https://lh3.googleusercontent.com/-DseKkkTYv9E/VuIw8C1YzUI/AAAAAAAAhEk/zjOte21nm9w/s640/blogger-image--1411784167.jpg)
 
 I feel so lucky to be leading this life!
-
-![lo](https://lh3.googleusercontent.com/-UZ3LPmNeOGY/VuIw10ja7FI/AAAAAAAAhEg/1J4lb97PUyU/s640/blogger-image-120960825.jpg)
 
 ![fire!](https://lh3.googleusercontent.com/-zFJAqsAwfp0/Vt70s_mWfbI/AAAAAAAAhDw/r70AVvas0Fo/s640/blogger-image-657444278.jpg)
