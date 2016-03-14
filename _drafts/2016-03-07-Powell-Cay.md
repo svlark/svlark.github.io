@@ -4,18 +4,30 @@ title:
 date: 2015-09-06
 author: April
 tags:
-thumb: http://lh3.googleusercontent.com/-WNRwG1LcFvk/Ve0BpqenlBI/AAAAAAAAe4g/ZvzmA5tfDF8/s1600/blogger-image-386363611.jpg
+thumb: https://3.bp.blogspot.com/-mh7RnKPmDyw/VuIzocmSHRI/AAAAAAAAhFQ/sM5A-2cfJectZy2vhVZJGkt_-ZYMs_Z3g/s1600/DSC00049.jpg
 backgrounds:
-- http://lh3.googleusercontent.com/-WNRwG1LcFvk/Ve0BpqenlBI/AAAAAAAAe4g/ZvzmA5tfDF8/s1600/blogger-image-386363611.jpg
-- http://lh3.googleusercontent.com/-1nhRl6qDc4o/Ve0BwtsLYfI/AAAAAAAAe4w/p_2WSWOHIxY/s1600/blogger-image-743106615.jpg
+- https://lh3.googleusercontent.com/-DseKkkTYv9E/VuIw8C1YzUI/AAAAAAAAhEk/zjOte21nm9w/s640/blogger-image--1411784167.jpg
+- https://4.bp.blogspot.com/-7xpSYeV6kL8/VuIzm_9jXsI/AAAAAAAAhFM/FDz9pg_pbmMhoOK__nPkfpcZTN6z9IoPA/s1600/DSC00013.jpg
 ---
 
-Image: ![](http://4.bp.blogspot.com/-DqCdDfpZu3I/Ve0Kh2lkFmI/AAAAAAAAFwA/Rs3jP864PJs/s640/Screen%2BShot%2B2015-09-06%2Bat%2B11.12.41%2BPM.png)
+![delorme](https://lh3.googleusercontent.com/-zFJAqsAwfp0/Vt70s_mWfbI/AAAAAAAAhDw/r70AVvas0Fo/s640/blogger-image-657444278.jpg)
+![snorkel](https://4.bp.blogspot.com/-7xpSYeV6kL8/VuIzm_9jXsI/AAAAAAAAhFM/FDz9pg_pbmMhoOK__nPkfpcZTN6z9IoPA/s1600/DSC00013.jpg)
 
-Link: [on Trip30](https://www.trip30.com/trips/e0ce1150-c4d3-4388-830a-cd1e68d9702c))
+So far I am truly loving living aboard and being in the Bahamas. This is the way I imagined life would be. Exploring new towns, small quiet anchorages, bonfires on the beach, friendly cruisers and locals, and new children for the girls to play with. It is hard to imagine going back to the states right now. 
 
-So far I am truly loving living aboard and being in the Bahamas. This is the way I imagined life would be. Exploring new towns, small quiet anchorages, bonfires on the beach, friendly cruisers and locals, and new children for the girls to play with. It is hard to imagine going back to the states right now. Powell Cay was truly amazing. We pulled into a quiet anchorage with a handful of other boats. Jacob inflated the dinghy and we went to shore to explore. The beach was lovely, and we were the only ones there at first. This particular beach was full of sea biscuits, mostly living. They camouflage by covering themselves with treasure, and we loved picking them up and watching their tiny little hairs moving. We did find a couple of dead ones too, which are really beautiful treasures. 
+![conch](https://4.bp.blogspot.com/-Eh1vnmm3Zmg/VuIzgp2HNiI/AAAAAAAAhFE/kPSVPLc0h8AVFo3n9X8yMThSSsijwzJXQ/s1600/DSC00016.jpg)
+![sticks](https://3.bp.blogspot.com/-4M3hbFn11wA/VuIzkVh_IgI/AAAAAAAAhFI/chz9oYGRIyYcE1SrSc88pahoCsN4mzP7g/s1600/DSC00045.jpg)
 
-On our walk back to the boat Jacob suggested that we make a bonfire and roast hot dogs. As we rounded the corner we noticed that someone else had the same brilliant idea! They asked us to join them, and they happen to be a fellow kid boat. It was awesome! Some of the other couples from the anchorage came to join in too. The girls found some little bioluminescent creatures washing up on shore and Lorelei was catching them in her hands and had glowing neon blue fingers! 
+Powell Cay was truly amazing. We pulled into the quiet anchorage with a handful of other boats. Jacob inflated the dinghy and we went ashore to explore. The beach was lovely, and we were the only ones there at first. This particular beach was full of sea biscuits, mostly living. They camouflage by covering themselves with treasure, and we loved picking them up and watching their tiny little hairs moving. We did find a couple of dead ones too, which are really beautiful treasures. 
+
+![starfish and sand dollar](https://3.bp.blogspot.com/-mh7RnKPmDyw/VuIzocmSHRI/AAAAAAAAhFQ/sM5A-2cfJectZy2vhVZJGkt_-ZYMs_Z3g/s1600/DSC00049.jpg)
+![lark](https://lh3.googleusercontent.com/-WUwhF7QQtqs/Vt70xCpmYfI/AAAAAAAAhD4/3SYWdofcThY/s640/blogger-image-1763848617.jpg)
+
+On our walk back to the boat Jacob suggested that we make a bonfire and roast hot dogs. As we rounded the corner we noticed that someone else had already had the same brilliant idea! They asked us to join them, and they happened to be a fellow kid boat. It was awesome! Some of the other couples from the anchorage came to join in too. The girls found some little bioluminescent creatures washing up on shore and Lorelei was catching them in her hands and had glowing neon blue fingers! 
+
+![tree](https://lh3.googleusercontent.com/-DseKkkTYv9E/VuIw8C1YzUI/AAAAAAAAhEk/zjOte21nm9w/s640/blogger-image--1411784167.jpg)
 
 I feel so lucky to be leading this life!
+
+![lo](https://lh3.googleusercontent.com/-UZ3LPmNeOGY/VuIw10ja7FI/AAAAAAAAhEg/1J4lb97PUyU/s640/blogger-image-120960825.jpg)
+![fire!](https://lh3.googleusercontent.com/-zFJAqsAwfp0/Vt70s_mWfbI/AAAAAAAAhDw/r70AVvas0Fo/s640/blogger-image-657444278.jpg)
