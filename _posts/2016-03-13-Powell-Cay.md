@@ -2,7 +2,7 @@
 layout: post
 title: Great Sale to Powell Cay
 date: 2016-03-13
-author: April
+author: April & Jacob
 tags: Great Sale, Powell, kid boats, sand dollar, sea biscuit, fire
 thumb: https://3.bp.blogspot.com/-mh7RnKPmDyw/VuIzocmSHRI/AAAAAAAAhFQ/sM5A-2cfJectZy2vhVZJGkt_-ZYMs_Z3g/s1600/DSC00049.jpg
 backgrounds:
@@ -11,6 +11,8 @@ backgrounds:
 ---
 
 ![delorme](https://3.bp.blogspot.com/-itwQ1ZFc--I/VuYhAAogXDI/AAAAAAAEENQ/CKRHy7wtDXsYK8FqZPCIb-Bztd7Zp7w-w/s1600/Screen%2BShot%2B2016-03-13%2Bat%2B10.23.03%2BPM.png)
+
+The next stop after Great Sale was Powell Cay.  We got up early again in order to get the anchor down by about 3, leaving time to inflate and unload the dink, and have a relaxed afternoon and evening.  The trip was about 25 miles.  We caught sight of Little Abaco before losing sight of Great Sale and were just off one cay or another for the rest of the day.  Once we rounded Crab Cay we were officially in the Sea of Abaco.  Form there it was less than 10 miles to Powell.
 
 ![snorkel](https://4.bp.blogspot.com/-7xpSYeV6kL8/VuIzm_9jXsI/AAAAAAAAhFM/FDz9pg_pbmMhoOK__nPkfpcZTN6z9IoPA/s1600/DSC00013.jpg)
 
