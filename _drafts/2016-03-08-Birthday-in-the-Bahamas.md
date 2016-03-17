@@ -12,7 +12,7 @@ backgrounds:
 
 ![Bianca](https://lh3.googleusercontent.com/-kha2pR-M-bQ/Vt7zv4IvAwI/AAAAAAAAhDM/oYy1pE9RGeY/s640/blogger-image-1574618100.jpg)
 
-Our birthday parties have changed since leaving Colorado, and that is a little adjustment, especially for me and Audrey. Instead of tons of friends and fancy themes, they are much simpler. Audrey has been trying to plan her party since January, and I had to keep reminding her that we didn't know if we would be in Florida or the Bahamas, and we had no idea if there would be any kids around. It turns out we were in the Bahamas and there aren't any kids in Green Turtle right now (although there is the prospect of some in the next few days). 
+Our birthday parties have changed since leaving Colorado, and that is a little adjustment, especially for me and Audrey. Instead of tons of friends and fancy themes, they are much simpler. Audrey has been trying to plan her party since January, and I had to keep reminding her that we didn't know if we would be in Florida or the Bahamas, and we had no idea if there would be any kids around. It turns out we were in the Bahamas and there aren't any boat kids in Green Turtle right now (although there is the prospect of some in the next few days). 
 
 ![Cindy](https://lh3.googleusercontent.com/-HSNgF_LEsyo/Vt70nqGqtAI/AAAAAAAAhDs/a8JTAy8ki6c/s640/blogger-image-1118732041.jpg)
 
