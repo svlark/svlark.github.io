@@ -29,7 +29,7 @@ She also got her hair braided and we went for pedicures together!
 
 ![Bianca](https://lh3.googleusercontent.com/-kha2pR-M-bQ/Vt7zv4IvAwI/AAAAAAAAhDM/oYy1pE9RGeY/s640/blogger-image-1574618100.jpg)
 
-![pedicure](https://lh3.googleusercontent.com/-XOz7RAJY4pc/VtiDRAd_yvI/AAAAAAAAg68/RQp7lus3rhM/s640/blogger-image--2010195412.jpg)
+![pedicure](https://lh3.googleusercontent.com/-LJTNS4aklF8/VutYdjQ3G7I/AAAAAAAAhLg/rm4_ux9PCIE/s640/blogger-image-1934496331.jpg)
 
 ![kids](https://lh3.googleusercontent.com/-TJbcgilYwFw/VuoNwjJsxHI/AAAAAAAAhKI/mI27J2bJxd8/s640/blogger-image--2122876611.jpg)
 
