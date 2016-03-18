@@ -26,8 +26,11 @@ We did fulfill one of her plans, to bake a rainbow cake (or at least we attempte
 
 She also got her hair braided and we went for pedicures together! 
 
-All in all it was a nice birthday week! 
-
 ![grampsy](https://lh3.googleusercontent.com/-17geKR7NfdQ/Vt7zW0fs8GI/AAAAAAAAhC8/vskzQCi7s0k/s640/blogger-image--391773586.jpg)
 
 ![kids](https://lh3.googleusercontent.com/-TJbcgilYwFw/VuoNwjJsxHI/AAAAAAAAhKI/mI27J2bJxd8/s640/blogger-image--2122876611.jpg)
+
+A week late we did find a bunch of local girls for a a proper pool party.  Better late then never!
+
+It was a great birthday week! 
+
