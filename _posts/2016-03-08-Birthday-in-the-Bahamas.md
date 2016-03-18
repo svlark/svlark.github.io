@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Bairthday in The Bahamas
-date: 2015-09-06
+title: Birthday in The Bahamas
+date: 2015-03-08
 author: April
 tags: birthday, Bhahamas, Green Turtle Cove, kids
 thumb: https://lh3.googleusercontent.com/-uHf8nKMPvKY/Vt70HhedCXI/AAAAAAAAhDY/IgBzZCPgKbU/s640/blogger-image--736706696.jpg
