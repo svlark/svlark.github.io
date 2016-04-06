@@ -3,7 +3,7 @@ layout: post
 title: Green Turtle Cay
 date: 2016-04-04
 author: April
-tags:
+tags: Green Turtle Cay
 thumb: https://lh3.googleusercontent.com/-dQEU6xITAkY/VvnxvS2ZnKI/AAAAAAAAhR0/GWQxTRy8UjQ/s640/blogger-image-2001387876.jpg
 backgrounds:
 - https://lh3.googleusercontent.com/-MkX2rlQlyWg/VvnxogjqxZI/AAAAAAAAhRo/FIiJdi2rMiI/s640/blogger-image-1648529582.jpg
@@ -81,8 +81,7 @@ learning to crack coconuts from our neighbor Grant
 ![girls at Leeward Yacht Club](https://lh3.googleusercontent.com/-zmtVVGC-hCY/Vvnx_gu_DGI/AAAAAAAAhSM/AhY4TvgpWCc/s640/blogger-image--1270758503.jpg)
 
 
-One of our neighbors, Miss Cindy, offered to give the me and girls beading lessons while we were there.  She is a professional, and owned a bead shop before selling it all to set sail with her hubby Grant. Now she makes amazing jewelry of every type. Her Bead Girl Nauti Line designs were particularly popular on the docks! She was so sweet to give us some great classes. We learned some different chainmaille techniques and Audrey and Lorelei made sea glass necklaces and adorable wire and bead rings. The rings were so cute that when a friend saw Audrey’s she asked to buy one from her. So, Audrey is now an entrepreneur. She sold 2 rings for $10. She was pretty excited!!
+One of our neighbors, Miss Cindy, offered to give the me and girls beading lessons while we were there.  She is a professional, and owned a bead shop before selling it all to set sail with her hubby Grant. Now she makes amazing jewelry of every type. Her Bead Girl [Nauti Line](https://www.facebook.com/nautiline/?fref=ts) designs were particularly popular on the docks! She was so sweet to give us some great classes. We learned some different chainmaille techniques and Audrey and Lorelei made sea glass necklaces and adorable wire and bead rings. The rings were so cute that when a friend saw Audrey’s she asked to buy one from her. So, Audrey is now an entrepreneur. She sold 2 rings for $10. She was pretty excited!!
 
 ![Audrey and Cindy](https://lh3.googleusercontent.com/-WzfpuM8VzmA/VvnwUBaLvHI/AAAAAAAAhRU/a1T8mCdQYRA/s640/blogger-image--1646579095.jpg)
 
-Link: [Nauti Line](https://www.facebook.com/nautiline/?fref=ts)
