@@ -47,6 +47,8 @@ Later in the week Dad rented a power boat to go explore more, and we went back t
 
 ![Piggyville](https://lh3.googleusercontent.com/-1BVUufnZ578/VvnnwHA6zJI/AAAAAAAAhQ4/OASuNRpUvjQ/s640/blogger-image--902636476.jpg)
 
+![delorme](https://2.bp.blogspot.com/-2Iqerunb6yU/VwRzKiiAn9I/AAAAAAAAhT8/ColThTBmqL0zBjRmMa_1N7q98y3-esWKw/s1600/Screen%2BShot%2B2016-04-05%2Bat%2B10.26.24%2BPM.png)
+
 My dad rented a golf cart for his stay in order to get around the island. We had so much fun in it! We  explored every beach-- even ones that required a little off-roading. It made me and Jacob a little nostalgic for our epic road tripping days and I think we are going to try to save up so that we can rent cars or carts occasionally to explore more interior locations too. 
 
 ![Audrey driving the cart](https://lh3.googleusercontent.com/-tDFlufpW6AE/Vvnx2LIys2I/AAAAAAAAhR8/Qgd-t5U4OZk/s640/blogger-image-2001018094.jpg)
