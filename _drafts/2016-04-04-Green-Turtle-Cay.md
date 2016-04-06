@@ -83,4 +83,4 @@ One of our neighbors, Miss Cindy, offered to give the me and girls beading lesso
 
 ![Audrey and Cindy](https://lh3.googleusercontent.com/-WzfpuM8VzmA/VvnwUBaLvHI/AAAAAAAAhRU/a1T8mCdQYRA/s640/blogger-image--1646579095.jpg)
 
-Link: [Nauti Line](https://www.facebook.com/nautiline/?fref=ts))
+Link: [Nauti Line](https://www.facebook.com/nautiline/?fref=ts)
