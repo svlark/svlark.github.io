@@ -20,4 +20,10 @@ Food, water, and fuel are expensive.   The Bahamian dollar is pegged to the US d
 
 Most places we’ve gone most people are black.  Except Man-O-War Cay.  There, everyone’s white and named Albury.  Hope Town is also about half Alburys and Malones. Cruisers are everywhere.  
 
-Every morning at 8 cruisers all over the the area share information on VHF channel 68.  Abaco is over 100 miles long from north to south and almost all empty pine forest.  
+Every morning at 8 cruisers all over the the area share information on VHF channel 68.  Abaco is over 100 miles long from north to south and almost all empty pine forest. 
+
+conch horns at sunset
+
+no cleats on docks
+
+FNM and PLP instead of dems and reps
