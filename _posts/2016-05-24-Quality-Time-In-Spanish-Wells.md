@@ -4,7 +4,12 @@ title: Quality Time in Spanish Wells
 date: 2016-05-24
 author: Jacob
 tags: Perkins, injection pump, Spanish Wells
+thumb: https://lh3.googleusercontent.com/-zZo6XKajLes/V0XGHDa-1EI/AAAAAAAAh_w/vD5OACO86EY/s640/blogger-image-1837039033.jpg
+backgrounds:
+- https://lh3.googleusercontent.com/-dh5oXIJaZmc/V0XGEoa2nUI/AAAAAAAAh_s/Ea5LBfL4how/s640/blogger-image-654549460.jpg
+- https://lh3.googleusercontent.com/-zZo6XKajLes/V0XGHDa-1EI/AAAAAAAAh_w/vD5OACO86EY/s640/blogger-image-1837039033.jpg
 ---
+![sunset](https://lh3.googleusercontent.com/-9gsw3Ha6lDU/V0XGJVzztZI/AAAAAAAAh_0/vCg_ba5QbYw/s640/blogger-image--1940877143.jpg)
 
 So we're putting in some serious time here in Spanish Wells. We got here three weeks ago at which point our injection pump promptly broke and started dumping pressurized fuel into the oil around the drive shaft. We were alerted to this condition when we went to leave for Harbour Island and the engine briefly ran away on us when the oil was diluted to almost straight diesel. Then, as we were being towed to the dock where we planned to tie up safely while dealing with the pump, the steering failed. The pin in the last link of the motorcycle chain sheared and the link came apart. It does kinda make you feel like someone's looking out for you to have two rather significant and dangerous equipment failures wait until you are in safe harbor just after an open water crossing.
 
