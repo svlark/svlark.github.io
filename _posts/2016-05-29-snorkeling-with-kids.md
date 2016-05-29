@@ -4,7 +4,7 @@ title: Snorkeling with Kids
 date: 2016-05-29
 author: April
 tags: snorkelling, day in the life, Spanish Wells, boat kids, Eleuthera, dinghy
-thumb: https://lh3.googleusercontent.com/-zzfOVlQJ3fE/V0XGbIUDoDI/AAAAAAAAh_4/Y9roYkkpD9c/s640/blogger-image-549510895.jpg
+thumb: https://lh3.googleusercontent.com/-5dav-ZqmqqQ/V0XGgneneYI/AAAAAAAAiAA/MScHu09s8yw/s640/blogger-image-173892
 backgrounds:
 - https://lh3.googleusercontent.com/-ik1THxDptlY/V0XGjKDr_9I/AAAAAAAAiAE/ijDrEC_YLyc/s640/blogger-image-1672279883.jpg
 ---
