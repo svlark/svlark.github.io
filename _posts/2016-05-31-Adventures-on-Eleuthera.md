@@ -51,7 +51,7 @@ Preachers Cave - A cool cave that has some serious Bahamian history. The first B
 
 ![cave hole](https://lh3.googleusercontent.com/-uoTF6--X_r4/V0ssLRZFFvI/AAAAAAAAiBw/JdVX4O1Qojc/s640/blogger-image--1045575022.jpg)
 
-We stopped for a fun lunch in Governor’s Harbour on the way back up at a place called Pascal’s. They had a great pool, which we all enjoyed, and is something that Spanish Wells is lacking!  Jacob says the beach there is the most beautiful beach he's ever seen.  The sand is fine soft powder, mostly white with some grains of bright pink (the infamous pink sand beaches!).  The water is perfectly clear and the bottom is pure soft sand without any rocks or seaweed.  
+We stopped for a fun lunch in Governor’s Harbour on the way back up at a place called Pascal’s. They had a great pool, which we all enjoyed, and is something that Spanish Wells is lacking!  Jacob says the beach there is the most beautiful beach he's ever seen.  The sand is fine soft powder, mostly white with some grains of bright pink (the famous pink sand beaches!).  The water is perfectly clear and the bottom is pure soft sand without any rocks or seaweed.  
 
 ![pascals pool](https://lh3.googleusercontent.com/-uGRKxLnK5rI/V0sqzeNpczI/AAAAAAAAiBM/1WoDKqFcLuM/s640/blogger-image-1832485021.jpg)
 
