@@ -3,8 +3,8 @@ layout: post
 title: Honda Carb Cleaning
 date: 2016-08-14
 author: Jacob
-tags:
-thumb: 
+tags: repair, honda, generator, Jib Room, Spanish Wells, Marsh Harbour
+thumb: https://lh3.googleusercontent.com/-g35pXos-vRI/V7EudrMEXGI/AAAAAAAEbpg/ThXPtt3W52o/s640/blogger-image--1270911428.jpg
 backgrounds:
 - https://lh3.googleusercontent.com/-g35pXos-vRI/V7EudrMEXGI/AAAAAAAEbpg/ThXPtt3W52o/s640/blogger-image--1270911428.jpg
 ---
