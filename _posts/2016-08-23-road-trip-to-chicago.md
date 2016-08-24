@@ -17,13 +17,13 @@ backgrounds:
 
 We took a nice little drive to Chicago over the weekend to hang out with Grampsy for awhile.  
 
-On our way out of town we did one last morning with GranMiri and Papa— a honeybee festival in Cocoa.  It was very cool to get to look at several colonies behind glass.  What industrious little things they are!  
+On our way out of town we did one last morning with GranMiri and Papa— a honeybee festival in Cocoa.  The girls got a nice fresh coat of paint on their faces, and it was very cool to get to look at several colonies of bees behind glass.  What industrious little things they are!  
 
 ![bee festival](https://lh3.googleusercontent.com/-8zcqSCijuNo/V7z5GIwpCbI/AAAAAAAA4xY/Ud5oKB6ZOLM/s640/blogger-image--1419092841.jpg)
 
-We left Cocoa shortly after 10 and made it to Spartanburg easily just as it began to get dark.  With the girls we listened to several hours of a recording of Great Expectations.  When they were finally exhausted by Dickens, we let them rest with iPads, while April and I listened to Ian Fleming.  After dinner at a Thai place we crashed at Red Roof Inn.   We’d made about 500 miles that day. 
+We left Cocoa shortly after 10 and made it to Spartanburg easily just as it began to get dark.  With the girls we listened to several hours of a recording of _Great Expectations_.  When they were finally exhausted by Dickens, we let them rest with iPads, while April and I listened to Ian Fleming.  After dinner at a Thai place we crashed at Red Roof Inn.   We’d made about 500 miles that day. 
 
-Somehow Lorelei lost a shoe in the hotel room and for the life of us could not find the thing, so that morning we headed for a Target south of Asheville.  From there we left the interstate to drive the Blue Ridge Parkway.  This was my favorite part of the trip.  The two-lane road runs continually along ridges and saddles with one scenic vista after the next.  It’s really cool to compare and a contrast with what we’ve become accustomed to in the Rockies.  Of course the Smokies aren’t anywhere near so tall or rugged as the the Rockies, but is arguably just as beautiful thanks to the vibrancy of the vegetation, alternately providing cool tunnels over the roadway and carpeting the landscape as far we could see.
+Somehow Lorelei lost a shoe in the hotel room and for the life of us could not find the thing, so that morning we headed for a Target south of Asheville.  From there we left the interstate to drive the Blue Ridge Parkway.  This was my favorite part of the trip.  The two-lane road runs continually along ridges and saddles with one scenic vista after the next.  It’s really cool to compare and contrast with what we’ve become accustomed to in the Rockies.  Of course the Smokies aren’t anywhere near so tall or rugged as the the Rockies, but they're arguably just as beautiful thanks to the vibrancy of the vegetation, alternately providing cool tunnels over the roadway and carpeting the landscape as far we could see.
 
 ![blue ridge vista](https://lh3.googleusercontent.com/-Q6khplOQ5cM/V7z42kxSmuI/AAAAAAAA4wY/QkIh_YMckeI/s640/blogger-image--950007922.jpg)
 
@@ -33,7 +33,7 @@ Somehow Lorelei lost a shoe in the hotel room and for the life of us could not f
 
 ![turkey](https://lh3.googleusercontent.com/-r9VsFpK9XP8/V7z46SODShI/AAAAAAAA4wo/3dSGpBmhrIM/s640/blogger-image--2024271902.jpg)
 
-Near the end of the parkway where it drops into eastern Tennessee, we stopped to visit a wonderfully picturesque farm museum, consisting of a log cabin and 6 or 8 out-buildings on the banks of a small river at the edge of a 15- or 20-acre meadow in a valley surrounded by green slopes.  Half a mile down the road we made another brief stop to explore the Mingus Mill, a 150-year-old functioning flour mill driven by water channelled through a flamed and force through a turbine. 
+Near the end of the parkway where it drops into eastern Tennessee, we stopped to visit a wonderfully picturesque farm museum, consisting of a log cabin and 6 or 8 out-buildings on the banks of a small river at the edge of a 15- or 20-acre meadow in a valley surrounded by green slopes.  Half a mile down the road we made another brief stop to explore the Mingus Mill, a 150-year-old functioning flour mill driven by water channelled through a flume and forced through a turbine. 
 
 ![cabin](https://lh3.googleusercontent.com/-zkLcI_nebDI/V7z49dOLdLI/AAAAAAAA4w0/Ge4JNQPYt9I/s640/blogger-image--2100434180.jpg)
 
@@ -49,7 +49,7 @@ We spent that night at the Music Road Inn in Pigeon Forge, TN.  We’d taken 8 h
 
 ![waterpark](https://lh3.googleusercontent.com/-oW6xWGqDbhE/V7z45rS2isI/AAAAAAAA4wk/WQXD1dVC48A/s640/blogger-image-70505883.jpg)
 
-The next morning we played in the mini waterpark at the hotel— the corkscrew water slide, a very lazy river, a splash pool, and a hot tub occupied us for a couple hours. After an early lunch in Sevierville, we started out in earnest. Great Expectations took us through Knoxville, Lexington, and Cincinnati.  007 got us through Indianapolis, the Loop, the Kennedy and finally into the north suburbs by 11:30 Central.  That day we covered nearly 600 miles.
+The next morning we played in the mini waterpark at the hotel— the corkscrew water slide, a very lazy river, a splash pool, and a hot tub occupied us for a couple hours. After an early lunch in Sevierville, we started out in earnest. _Great Expectations_ took us through Knoxville, Lexington, and Cincinnati.  007 got us through Indianapolis, the Loop, the Kennedy and finally into the north suburbs by 11:30 Central.  That day we covered nearly 600 miles.
 
 ![bedroom](https://lh3.googleusercontent.com/-hU_ZStYH3gY/V7z44pQWMqI/AAAAAAAA4wg/VYgSaz11ZlQ/s640/blogger-image--593677048.jpg)
 
