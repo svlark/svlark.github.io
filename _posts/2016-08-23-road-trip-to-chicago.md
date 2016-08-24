@@ -13,9 +13,7 @@ backgrounds:
 - https://lh3.googleusercontent.com/-U4G8pW2iMC8/V7z47RbEYMI/AAAAAAAA4ws/M7Xdel3rfeI/s640/blogger-image-687768159.jpg
 ---
 
-[On Trip30](https://www.trip30.com/shared/0e66f000-bf86-45ee-ae3c-f63e19fc0d49)
-
-We took a nice little drive to Chicago over the weekend to hang out with Grampsy for awhile.  
+We took a nice little [drive to Chicago](https://www.trip30.com/shared/0e66f000-bf86-45ee-ae3c-f63e19fc0d49) over the weekend to hang out with Grampsy for awhile.  
 
 On our way out of town we did one last morning with GranMiri and Papa— a honeybee festival in Cocoa.  The girls got a nice fresh coat of paint on their faces, and it was very cool to get to look at several colonies of bees behind glass.  What industrious little things they are!  
 
