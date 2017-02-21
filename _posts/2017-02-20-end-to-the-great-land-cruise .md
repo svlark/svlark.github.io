@@ -4,7 +4,7 @@ title: An End To The Great Land Cruise of 2016/17
 date: 2017-02-20
 author: April
 tags: driving, Amel, boats, Seattle, Comox, road trip, Blaine, Sealions
-thumb: https://lh3.googleusercontent.com/-GIecc3ERmS4/Vf9W0oJOBWI/AAAAAAAAFyw/QoXENJnAhVo/s640/blogger-image-1176498696.jpg
+thumb: https://lh3.googleusercontent.com/-eOw20B-LZZw/WKvTTsihhcI/AAAAAAABW0g/co4oRoqw9yo/s640/blogger-image-2010567471.jpg
 backgrounds:
 - https://lh3.googleusercontent.com/-vfFpXiHYu9k/WKvRKuwHRtI/AAAAAAABWzk/HOCupm9KF9I/s640/blogger-image-1411199356.jpg
 - https://lh3.googleusercontent.com/-dVmTxwmaVVU/WKvRscmtLuI/AAAAAAABW0I/nK3tnYncaBw/s640/blogger-image--181454055.jpg
