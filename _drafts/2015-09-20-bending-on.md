@@ -15,6 +15,8 @@ I made another payment on our self-insurance premiums yesterday.  The first part
 
 First came the staysail:
 
+![google photos link](![staysail on deck](https://lh3.googleusercontent.com/sot3KYm7UnrVFdIib8g441YeymBrYzdDroLM8kDJt-8AYdc7iZtWrAW3Pio4KMXMe73uBDtBlinKj9-KOko6Un3k1sXXR1YucHMJnSEpZee_CdY7p_tSxTuREfLkEJcOoL09gRVyXReKCxqP9s0QiGyuJBUFFc5TUvHgWZDGqyH74tWeQEJxbftEKI87YkbtzhR7z4U9tmaVO4EaKZ6lwTEq7sQdfB6tiGSgB-0SK-FuZN3ogBimjkQYGmaGDKmWUlyLAXf1_zjnyGWlEUnandg8vs78qrJ-ZXp9bww4HYYDmUaVEifgebgSA-2rcgJsAdlAzf8Q5O6WUxFPWYOo4sHUcOQYkt4hqMYPJV-KN76fF65Oq27bUDDaMciHRwCaKi1wIZC3AtFqHlLcsraMo2gD0IB8jJXd8HtQAr3Og7LmDUDXd8NwI0Kvq92sAbe5f205T8NAQX_t0ttgIIbMwMibYYvKRddZIS1ckog0ryB21CYWJYM49JyqmK5fh74YvFyi5rx1OfiY2Y6JAnlSnkIv1_R3vnKKQAuCqZKM971ZzyX2CyxbVTltGBdNzBUMKGwJ6Zx70kNqxr4ZAQYI23SEk3zx7gD-3pSlsAnEAgbaCanvuuG0YQ=w1536-h2046-no)
+
 ![staysail on deck](https://lh3.googleusercontent.com/-gbOyTXDGCPU/Vf9WOZFHuiI/AAAAAAAAFyI/HN0dh__HGDY/s640/blogger-image--1980394342.jpg)
 
 ![staysail up](https://lh3.googleusercontent.com/-IeGjMb83yxg/Vf9WyAdFHCI/AAAAAAAAFyg/Ht_JbagYrNM/s640/blogger-image--1001687959.jpg)
