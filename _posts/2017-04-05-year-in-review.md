@@ -1,14 +1,11 @@
 ---
 layout: post
-title: Bending on
-date: 2015-09-20
-author: Jacob
+title: Year in Review
+date: 2017-04-05
+author: April, Jacob
 tags:
-thumb: https://lh3.googleusercontent.com/-GIecc3ERmS4/Vf9W0oJOBWI/AAAAAAAAFyw/QoXENJnAhVo/s640/blogger-image-1176498696.jpg
+thumb: 
 backgrounds:
-- https://lh3.googleusercontent.com/-j5_OOrm85tk/Vf9WMpVcOfI/AAAAAAAAFyA/VlIVS7een0w/s640/blogger-image--2033543811.jpg
-- https://lh3.googleusercontent.com/-GIecc3ERmS4/Vf9W0oJOBWI/AAAAAAAAFyw/QoXENJnAhVo/s640/blogger-image-1176498696.jpg
-- https://lh3.googleusercontent.com/-jSA9RDYSc1M/Vf9ZSly9J_I/AAAAAAAAFy8/RQLlZdyXDV0/s640/blogger-image-917237636.jpg
 ---
 
 Year in Review:
