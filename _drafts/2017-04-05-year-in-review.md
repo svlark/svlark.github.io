@@ -17,6 +17,8 @@ After the map in our last post, we thought it would be cool to map everywhere we
 
 We used Trip30 to create these images. It’s exciting to dream of where the next year will take us! 
 
+![trip30 map](https://cloud.githubusercontent.com/assets/13930968/24825492/ed9a783e-1be4-11e7-8511-54a2183cc26d.JPG)
+
 We were anchored in Lake Worth just inside the inlet when we went to bed the night of Feb 21, 2016.  
 
 ![](https://cloud.githubusercontent.com/assets/13930968/24735070/a713baa0-1a46-11e7-999e-4cde13af7fde.JPG)
