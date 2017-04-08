@@ -15,7 +15,7 @@ Year in Review:
 
 After the map in our last post, we thought it would be cool to map everywhere we had been in the last year.  After looking at it, we said, we knew it had been a busy year, but wow, it was REALLY busy. 
 
-We used Trip30 to create these images. It’s exciting to dream of where the next year will take us! 
+We used [Trip30](http://www.trip30.com/ "Trip30") to create these images. It’s exciting to dream of where the next year will take us! 
 
 ![trip30](https://cloud.githubusercontent.com/assets/13930968/24825514/6a657080-1be5-11e7-94ea-b3ec38ee9850.png)
 
