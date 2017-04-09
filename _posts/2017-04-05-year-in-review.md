@@ -4,8 +4,12 @@ title: Year in Review
 date: 2017-04-05
 author: April, Jacob
 tags:
-thumb: 
+thumb:https://cloud.githubusercontent.com/assets/13930968/24825534/bccd9604-1be5-11e7-9c3e-584d15c28fff.png 
 backgrounds:
+- https://cloud.githubusercontent.com/assets/13930968/24735581/33006782-1a49-11e7-9764-af95d300bf9a.JPG
+- https://cloud.githubusercontent.com/assets/13930968/24824767/acbfe360-1bd7-11e7-906e-583e1ae988d6.JPG
+- https://cloud.githubusercontent.com/assets/13930968/24825268/0321470e-1be1-11e7-96cc-c31d2d27b887.JPG
+- https://cloud.githubusercontent.com/assets/13930968/24825350/b438bb2a-1be2-11e7-9974-4595490e9a77.JPG
 ---
 
 Year in Review:
