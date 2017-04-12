@@ -6,7 +6,6 @@ author: Jacob
 tags: internet, sxm, st martin, sint maarten, orange, digicel, duaphin, chippie, scarlet, t-mobile, project fi
 thumb: https://cloud.githubusercontent.com/assets/13930968/24938284/2d5778ec-1f04-11e7-9021-f378d0d02032.jpg
 backgrounds:
-- https://cloud.githubusercontent.com/assets/13930968/24938270/11ab79ea-1f04-11e7-8afb-bd49211b649a.jpg
 - https://cloud.githubusercontent.com/assets/13930968/24938299/43672826-1f04-11e7-89ce-abe62e1d4844.jpg
 ---
 
@@ -15,6 +14,8 @@ After having spent the last couple weeks taking careful measurements and tweakin
 We have two weeks in a condo in Sandy Ground with Duaphin wifi which does 11/8, which will be comfortable for when I get back to work tomorrow morning.  The struggle has been to find something which will work for us on the boat once we're out of this condo.  The stakes are high:  if we couldn't find anything, we couldn't stay here, so we couldn't buy the boat.  
 
 So I've spent most of the last two days hoofing it around Marigot and Cole Bay.  Serafina's delectables have been the consolation prize.
+
+![Serafina's](https://cloud.githubusercontent.com/assets/13930968/24938270/11ab79ea-1f04-11e7-8afb-bd49211b649a.jpg)
 
 There are many providers.  On the French side alone are Orange, Dauphin, DigiCel and UTS/Chippie.  On the Dutch side are Chippie and Scarlet WiMax, and probably others I don't yet know about.  On Monday, I went to Orange, Dauphin, and Scarlet.  On Tuesday, I went to DigiCel, UTS and Chippie.  
 
@@ -31,5 +32,3 @@ Here's what finally worked for us.  The broker is very eager to complete this sa
 Even with this arrangement, the Orange plan tops out at 40GB per month with no option to increase the quota.  It should be about 6 weeks before we run in to this limitation, but we may need to, at that point buy a second and possibly a third SIM and plan to get to 100GB per month.  This will be very spendy, to the tune of 200-300 EUR per month, but we are hopeful that we will avoid needing to take it that far if we have good luck with wifi and if the other providers come through with their theorized network upgrades.  
 
 Dauphin in particular, currently offers a plan with a quota of 100GB per month for 40EUR.  If they can get their LTE network up this will be huge.  The other promising option at this point is  CHIPPIE on the Dutch side.  I have yet to see it work, but supposedly they have LTE service there billed at $0.65 per day.  This would be the best deal of all if it pans out.  We'll have to see...
-
-![](https://cloud.githubusercontent.com/assets/13930968/24938270/11ab79ea-1f04-11e7-8afb-bd49211b649a.jpg)
