@@ -11,7 +11,7 @@ backgrounds:
 
 After having spent the last couple weeks taking careful measurements and tweaking settings on NLC while working with team member on HipChat, Google Hangouts, Screenhero, and Webex, I've concluded that I need 3 Mbps up and down and around 100GB per month of data.  
 
-We have two weeks in a condo in Sandy Ground with Duaphin wifi which does 11/8, which will be comfortable for when I get back to work tomorrow morning.  The struggle has been to find something which will work for us on the boat once we're out of this condo.  The stakes are high:  if we couldn't find anything, we couldn't stay here, so we couldn't buy the boat.  
+We have two weeks in a condo in Sandy Ground with Duaphin wifi which does 11/8 down and up, which will be comfortable for when I get back to work tomorrow morning.  The struggle has been to find something which will work for us on the boat once we're out of this condo.  The stakes are high:  if we couldn't find anything, we couldn't stay here, so we couldn't buy the boat.  
 
 So I've spent most of the last two days hoofing it around Marigot and Cole Bay.  Serafina's delectables have been the consolation prize.
 
