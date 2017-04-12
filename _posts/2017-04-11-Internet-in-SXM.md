@@ -31,3 +31,5 @@ Here's what finally worked for us.  The broker is very eager to complete this sa
 Even with this arrangement, the Orange plan tops out at 40GB per month with no option to increase the quota.  It should be about 6 weeks before we run in to this limitation, but we may need to, at that point buy a second and possibly a third SIM and plan to get to 100GB per month.  This will be very spendy, to the tune of 200-300 EUR per month, but we are hopeful that we will avoid needing to take it that far if we have good luck with wifi and if the other providers come through with their theorized network upgrades.  
 
 Dauphin in particular, currently offers a plan with a quota of 100GB per month for 40EUR.  If they can get their LTE network up this will be huge.  The other promising option at this point is  CHIPPIE on the Dutch side.  I have yet to see it work, but supposedly they have LTE service there billed at $0.65 per day.  This would be the best deal of all if it pans out.  We'll have to see...
+
+![](https://cloud.githubusercontent.com/assets/13930968/24938270/11ab79ea-1f04-11e7-8afb-bd49211b649a.jpg)
