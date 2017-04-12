@@ -6,8 +6,8 @@ author: Jacob
 tags: internet, sxm, st martin, sint maarten, orange, digicel, duaphin, chippie, scarlet, t-mobile, project fi
 thumb: https://cloud.githubusercontent.com/assets/13930968/24938284/2d5778ec-1f04-11e7-9021-f378d0d02032.jpg
 backgrounds:
-- https://cloud.githubusercontent.com/assets/13930968/24938270/11ab79ea-1f04-11e7-8afb-bd49211b649a.jpg)
-- https://cloud.githubusercontent.com/assets/13930968/24938299/43672826-1f04-11e7-89ce-abe62e1d4844.jpg)
+- https://cloud.githubusercontent.com/assets/13930968/24938270/11ab79ea-1f04-11e7-8afb-bd49211b649a.jpg
+- https://cloud.githubusercontent.com/assets/13930968/24938299/43672826-1f04-11e7-89ce-abe62e1d4844.jpg
 ---
 
 After having spent the last couple weeks taking careful measurements and tweaking settings on NLC while working with team member on HipChat, Google Hangouts, Screenhero, and Webex, I've concluded that I need 3 Mbps up and down and around 100GB per month of data.  
