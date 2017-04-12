@@ -14,7 +14,7 @@ After having spent the last couple weeks taking careful measurements and tweakin
 
 We have two weeks in a condo in Sandy Ground with Duaphin wifi which does 11/8, which will be comfortable for when I get back to work tomorrow morning.  The struggle has been to find something which will work for us on the boat once we're out of this condo.  The stakes are high:  if we couldn't find anything, we couldn't stay here, so we couldn't buy the boat.  
 
-So I've spent most of the last two days hoofing it around Marigot and Cole Bay.  Serafina's has been the consolation prize.
+So I've spent most of the last two days hoofing it around Marigot and Cole Bay.  Serafina's delectables have been the consolation prize.
 
 There are many providers.  On the French side alone are Orange, Dauphin, DigiCel and UTS/Chippie.  On the Dutch side are Chippie and Scarlet WiMax, and probably others I don't yet know about.  On Monday, I went to Orange, Dauphin, and Scarlet.  On Tuesday, I went to DigiCel, UTS and Chippie.  
 
