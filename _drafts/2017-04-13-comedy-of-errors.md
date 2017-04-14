@@ -1,12 +1,13 @@
 ---
 layout: post
 title: Comedy of errors
-date: 2017-04-12
+date: 2017-04-13
 author: April
 tags: internet, sxm, st martin, sint maarten, barfing, amel, wells fargo
-thumb: https://cloud.githubusercontent.com/assets/13930968/24938284/2d5778ec-1f04-11e7-9021-f378d0d02032.jpg
+thumb: https://cloud.githubusercontent.com/assets/13930968/25043729/ab5fd678-20e7-11e7-8f23-d655fd6be40d.JPG
 backgrounds:
-- https://cloud.githubusercontent.com/assets/13930968/24938299/43672826-1f04-11e7-89ce-abe62e1d4844.jpg
+- https://cloud.githubusercontent.com/assets/13930968/25043712/7f4fa82e-20e7-11e7-8a32-e3f68e9091f9.jpg
+- https://cloud.githubusercontent.com/assets/13930968/25043716/9012146c-20e7-11e7-84ee-c2eb16dff273.JPG
 ---
 
 Buying a boat in a beautiful foreign locale isn’t always as fun as it may seem. Our last week has felt a little more like a comedy of errors, then a romantic adventure. 
@@ -23,6 +24,14 @@ Then it came time to actually pay for our new boat, and the wire transfer wouldn
 
 Right after that all gets figured out, and we are having a celebratory swim at the pool Lorelei starts barfing. She does not have good aim. 
 
+![Audrey jumping in](https://cloud.githubusercontent.com/assets/13930968/25043729/ab5fd678-20e7-11e7-8f23-d655fd6be40d.JPG)
+
+![cuddly Lorelei](https://cloud.githubusercontent.com/assets/13930968/25043741/c4533da0-20e7-11e7-9ae7-16375b85bb7c.JPG)
+I didn't realize Lorelei was feeling so cuddly at the pool because she was about to be sick. 
+
 We have just one last step to complete the sale, which is wiring money to the boat broker, which is a small enough amount that Wells Fargo allows it. We attempted to do the transfer and found out that Wells Fargo has frozen all of our online banking. They said we would have to come in to complete the transaction. Unfortunately, we are in St. Martin! They say there is an issue with our Tax Payor ID…whatever that means. 
 
 Do we own a boat??? I don’t know…it's been a little too hectic to be sure. I’m sorry to complain so much! Starting right now, my glass is half full again! 
+
+![signing contract](https://cloud.githubusercontent.com/assets/13930968/25043716/9012146c-20e7-11e7-84ee-c2eb16dff273.JPG)
+Jacob signing the boat contract
