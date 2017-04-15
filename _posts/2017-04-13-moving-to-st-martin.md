@@ -10,7 +10,7 @@ backgrounds:
 - https://cloud.githubusercontent.com/assets/13930968/25059921/e1385dba-2155-11e7-9ab2-6c89fdf98176.JPG
 ---
 
-Buying a boat in a beautiful foreign locale isn’t always as fun as it may seem. This last week has felt a more like a comedy of errors than a romantic adventure. 
+Buying a boat in a beautiful foreign locale isn’t always as fun as it may seem. This last week has felt more like a comedy of errors than a romantic adventure. 
 
 First, we decided (okay, mostly me) to carry 600lbs of stuff through the airport. It is too much! The uncertainty of knowing exactly what we would need left me feeling like I should pack more , not less...that was a bad choice, and now I really wish I had gone the other way.  Thankfully, Jacob is such a good sport and just pack-muled it all around.
 
