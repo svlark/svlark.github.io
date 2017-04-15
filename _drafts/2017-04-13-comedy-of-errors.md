@@ -7,31 +7,29 @@ tags: internet, sxm, st martin, sint maarten, barfing, amel, wells fargo
 thumb: https://cloud.githubusercontent.com/assets/13930968/25043729/ab5fd678-20e7-11e7-8f23-d655fd6be40d.JPG
 backgrounds:
 - https://cloud.githubusercontent.com/assets/13930968/25043712/7f4fa82e-20e7-11e7-8a32-e3f68e9091f9.jpg
-- https://cloud.githubusercontent.com/assets/13930968/25043716/9012146c-20e7-11e7-84ee-c2eb16dff273.JPG
+- https://cloud.githubusercontent.com/assets/13930968/25059921/e1385dba-2155-11e7-9ab2-6c89fdf98176.JPG
 ---
 
-Buying a boat in a beautiful foreign locale isn’t always as fun as it may seem. Our last week has felt a little more like a comedy of errors, then a romantic adventure. 
+Buying a boat in a beautiful foreign locale isn’t always as fun as it may seem. This last week has felt a more like a comedy of errors than a romantic adventure. 
 
 First, we decided (okay, mostly me) to carry 600lbs of stuff through the airport. It is too much! The uncertainty of knowing exactly what we would need left me feeling like I should pack more , not less...that was a bad choice, and now I really wish I had gone the other way.  Thankfully, Jacob is such a good sport and just pack-muled it all around.
 
-When we arrived in St. Martin, the rental car place that I had made a reservation with was closed already, and only one company was working, and they felt a little smarmy to me. We had to go with them, and the car and rental rate turned out to be okay.  Let’s just hope there aren’t any hidden surprises at the end! 
+We arrived in St. Martin after a very long travel day, all with very sore backs from our crazy heavy packs.  The car rental place we had a reservation was closed, and the only place there felt a little smarmy...so far no weird charges though. Then we couldn't find our Airbnb and had to walk around the whole complex looking at every unit for the strange French address we were given. After finally finding it, we were all starving but all of the proper restaurants and groceries were closed, so we decided on a roadside cheeseburger, which we all suspected of giving Audrey food poisoning (a little foreshadowing). 
 
-After finally getting our car at 9:30p we headed over to the complex where our Airbnb is located.  We drove around and around trying to find our apartment, we could not find the unit and the landlord was not responding to texts. We ended up having to to drive to each building in turn and get out and walk up to it to figure out what numbers it had.
+We spent the next two days searching for internet, and finally had to convince our French broker to buy us a good SIM. Jacob wrote a whole post about that! To top that whole experience off, Audrey started barfing! Thankfully it only lasted about one day, and she is very good about getting to the bathroom. 
 
-We spent the next two days searching for internet, and finally had to convince a French citizen to buy us a good SIM. Jacob wrote a whole post about that! To top that whole experience off, Audrey started barfing! Thankfully it only lasted about one day, and she is very good about getting to the bathroom. 
-
-Then it came time to actually pay for our new boat, and the wire transfer wouldn’t work. We spent two days on the phone with Wells Fargo, to no avail. Finally, we had to open a joint account with Jacob’s parents so that they could overnight the seller a cashiers check. 
+Then it came time to actually pay for our new boat, and the wire transfer wouldn’t work. We spent two days on the phone with Wells Fargo, to no avail. Finally, we had to open a joint account with Jacob’s parents so that they could physically get a counter check to overnight to the seller . 
 
 Right after that all gets figured out, and we are having a celebratory swim at the pool Lorelei starts barfing. She does not have good aim. 
 
 ![Audrey jumping in](https://cloud.githubusercontent.com/assets/13930968/25043729/ab5fd678-20e7-11e7-8f23-d655fd6be40d.JPG)
 
-![cuddly Lorelei](https://cloud.githubusercontent.com/assets/13930968/25043741/c4533da0-20e7-11e7-9ae7-16375b85bb7c.JPG)
-I didn't realize Lorelei was feeling so cuddly at the pool because she was about to be sick. 
+![cuddly Lorelei](https://cloud.githubusercontent.com/assets/13930968/25059918/c7fc9cf8-2155-11e7-96b3-6193c0c1ac3c.JPG)
+I didn't realize that the reason Lorelei was feeling so cuddly at the pool was because she was about to be sick. 
 
-We have just one last step to complete the sale, which is wiring money to the boat broker, which is a small enough amount that Wells Fargo allows it. We attempted to do the transfer and found out that Wells Fargo has frozen all of our online banking. They said we would have to come in to complete the transaction. Unfortunately, we are in St. Martin! They say there is an issue with our Tax Payor ID…whatever that means. 
+We have just one last step to complete the sale, which is wiring the commission to the boat broker (French boat sales are weird that way), which is a small enough amount that Wells Fargo ought to allow it. We attempted to do the transfer and found out that Wells Fargo has frozen all of our online banking. They said we would have to come in to complete the transaction. Unfortunately, we are in St. Martin!  Suffice to say we'll be closing all our Wells Fargo accounts after this.
 
-Do we own a boat??? I don’t know…it's been a little too hectic to be sure. I’m sorry to complain so much! Starting right now, my glass is half full again! 
+So do we own the boat??? I don’t know…it's been a little too hectic to be sure. I’m sorry to complain so much! Starting right now, my glass is half full again! 
 
-![signing contract](https://cloud.githubusercontent.com/assets/13930968/25043716/9012146c-20e7-11e7-84ee-c2eb16dff273.JPG)
-Jacob signing the boat contract
+![signing contract](https://cloud.githubusercontent.com/assets/13930968/25059921/e1385dba-2155-11e7-9ab2-6c89fdf98176.JPG)
+Jacob signing the boat contract.  Doesn't count until the seller deposits the check...
