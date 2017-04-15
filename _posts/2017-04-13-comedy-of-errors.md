@@ -16,7 +16,7 @@ First, we decided (okay, mostly me) to carry 600lbs of stuff through the airport
 
 We arrived in St. Martin after a very long travel day, all with very sore backs from our crazy heavy packs.  The car rental place we had a reservation was closed, and the only place there felt a little smarmy...so far no weird charges though. Then we couldn't find our Airbnb and had to walk around the whole complex looking at every unit for the strange French address we were given. After finally finding it, we were all starving but all of the proper restaurants and groceries were closed, so we decided on a roadside cheeseburger, which we all suspected of giving Audrey food poisoning (a little foreshadowing). 
 
-We spent the next two days searching for internet, and finally had to convince our French broker to buy us a good SIM. Jacob wrote a whole post about that! To top that whole experience off, Audrey started barfing! Thankfully it only lasted about one day, and she is very good about getting to the bathroom. 
+We spent the next two days searching for internet, and finally had to convince our French broker to buy us a good SIM. [Jacob wrote a whole post](http://www.svlark.com/2017/04/Internet-in-SXM.html) about that! To top that whole experience off, Audrey started barfing! Thankfully it only lasted about one day, and she is very good about getting to the bathroom. 
 
 Then it came time to actually pay for our new boat, and the wire transfer wouldn’t work. We spent two days on the phone with Wells Fargo, to no avail. Finally, we had to open a joint account with Jacob’s parents so that they could physically get a counter check to overnight to the seller . 
 
