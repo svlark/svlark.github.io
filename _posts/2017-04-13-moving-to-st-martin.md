@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Comedy of Errors
+title: Moving to St. Martin
 date: 2017-04-13
 author: April
 tags: internet, sxm, st martin, sint maarten, barfing, amel, wells fargo
