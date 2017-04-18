@@ -11,11 +11,11 @@ backgrounds:
 ---
 ![amel under sail big](https://cloud.githubusercontent.com/assets/13930968/25110979/aef43b8a-23ad-11e7-80f0-42eaa65149c8.JPG)
 
-We've decided to not go shopping for gifts for each other this year, and to only give cards tomorrow, because we have officially just bought each other a new boat! Yea! 
+We've decided to not go shopping for gifts for each other this year, and to only give cards tomorrow, because we have officially just bought each other a new boat! Yea! She is a 46' Amel Maramu, built in 1986. 
 
 After a long and drawn out payment process, she is now officially ours, and we are so excited! Hopefully we will be able to move aboard this weekend. She will stay on the hard (in the boatyard) for a bit while we fix her up and possibly even through hurricane season. 
 
-With the boat came a great collection of old photos from the original brochure and from the factory of her being built. There are so many that we will try to share them in a few posts, but here are a few from the brochure. 
+With the boat came a great collection of old photos from the original brochure and from the factory of her being built. There are so many that we will try to share them in a few posts, but here are a few from the brochure. The original owner was German and so all of the materials are in German, even though she was built in France. 
 
 ![Amel in factory](https://cloud.githubusercontent.com/assets/13930968/25110919/327055f8-23ad-11e7-80eb-3f89fae1ddfd.JPG)
 
