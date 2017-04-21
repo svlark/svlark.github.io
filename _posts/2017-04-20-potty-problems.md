@@ -5,7 +5,8 @@ date: 2017-04-20
 author: April
 tags: Heads, toilets, Amel, boatyard, Turkish toilet 
 thumb: https://cloud.githubusercontent.com/assets/13930968/25260065/4f8d497a-260f-11e7-9751-b70a2a71c445.JPG
-backgrounds:https://cloud.githubusercontent.com/assets/13930968/25260172/faab10e4-260f-11e7-99b6-728ef984ceeb.JPG
+backgrounds:
+- https://cloud.githubusercontent.com/assets/13930968/25260172/faab10e4-260f-11e7-99b6-728ef984ceeb.JPG
 ---
 
 With the possiblity of living on the hard (in the yard) on the boat for an extended amount of time, we have been thinking a lot about toilets! 
