@@ -11,7 +11,7 @@ backgrounds:
 
 With the possiblity of living on the hard (in the yard) on the boat for an extended amount of time, we have been thinking a lot about toilets! 
 
-The yard is not like the marinas that we have stayed in in the past. It does have bathrooms, but they are quite primitive. I think someone called their most sophisticated stall at Turkish toilet. It basically has two foot prints that you stand on, squat over, and the waste goes down a hole in the ground. Afterwards you do flush...but stand back because the water comes out with such gusto that everything is sprayed around the stall before it is deposited down the hole. 
+The yard is not like the marinas that we have stayed in in the past. It does have bathrooms, but they are quite primitive. I think someone called their most sophisticated stall a Turkish toilet. It basically has two foot prints that you stand on, squat over, and the waste goes down a hole in the ground. Afterwards you do flush...but stand back because the water comes out with such gusto that everything is sprayed around the stall before it is deposited down the hole. 
 
 ![Turkish toilet](https://cloud.githubusercontent.com/assets/13930968/25260065/4f8d497a-260f-11e7-9751-b70a2a71c445.JPG)
 Lorelei demonstrating proper form for the Turkish toilet. 
