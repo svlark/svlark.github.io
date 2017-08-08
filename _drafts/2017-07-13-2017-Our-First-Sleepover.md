@@ -21,9 +21,9 @@ Our night included: Audrey’s favorite dinner, a karaoke dance party, cookies, 
 ![movie time](https://user-images.githubusercontent.com/13930968/29010595-65e35e36-7afa-11e7-9e69-ab15f45ea303.jpg)
 Movie Time
 
-There were a few mishaps. Even though Jacob emptied the port-o-potty (lhttp://www.svlark.com/2017/04/potty-problems.html) at 5p, just before everyone arrived, by 3a it was overflowing everywhere, and Jacob and I had a super gross mess. Normally, on boat toilets, the more water the better, but that is not the case with port-o-potties! 
+There were a few mishaps. Even though Jacob emptied the [port-o-potty](lhttp://www.svlark.com/2017/04/potty-problems.html) at 5p, just before everyone arrived, by 3a it was overflowing everywhere, and Jacob and I had a super gross mess. Normally, on boat toilets, the more water the better, but that is not the case with port-o-potties! 
 
-A good time was had by all, and it has given us a lot of confidence about having guests visit! We had some room to spare (maybe link to boat tour video)! You know you’ve had a good sleepover when everyone is practically begging for bed by 7p! 
+A good time was had by all, and it has given us a lot of confidence about having guests visit! We had some [room to spare] (https://youtu.be/pcCRzdjkR6k)! You know you’ve had a good sleepover when everyone is practically begging for bed by 7p! 
 
 ![Audrey and Bella](https://user-images.githubusercontent.com/13930968/29010600-68c68e7a-7afa-11e7-96d9-ed44c1af08d0.jpg)
 Audrey and Bella the morning after
