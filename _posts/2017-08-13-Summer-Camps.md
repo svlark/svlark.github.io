@@ -46,5 +46,4 @@ Audrey with her hand sewn swimable mermaid tail.
 
 In the dress she designed and sewed in class. It is inspired by her favorite book, Little House in the Big Woods. 
 
-
 Later this week we are going to fly to Chicago, and the girls will be reunited with their buddies from horse camp, La and Haley! They can’t wait! 
