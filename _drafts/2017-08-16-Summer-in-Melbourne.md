@@ -71,8 +71,7 @@ Lorelei with the crab
 
 Another pool adventure took April, GranMiri, Audrey, and Lorelei to Gleason Park Pool, which, even though it lacks a water playground, afforded the opportunity for Audrey to swim in her mermaid tail, which she had designed and made from shiny green scaly fabric at one of her sewing classes (lessons?) at Fairythimbles in West Melbourne. The mermaid was quite popular with the four and five-year-olds at Gleason! Another creation was a Pioneer-style dress designed from illustrations in the Little House on the Prairie books. Could there be a year or two as a Disney character in this young lady's future??
 
-![Audrey the mermaid](https://user-images.githubusercontent.com/13930968/30524934-8b2f486a-9bc2-11e7-8c5a-e272d65f34c0.JPG)
-Audrey the mermaid
+![audrey the mermaid](https://user-images.githubusercontent.com/13930968/30570151-f5a57268-9ca4-11e7-9e2b-21df8c076302.JPG)
 
 Several weekends saw sailing on the Banana River or the Indian River, often with cousin Will Olds, as well as both girls and their dad and their dad's Papa. The sailboat carrying this merry crew was Papa's sailboat, Eumelia, a 24-foot Columbia, veteran of numerous storms, dating from 1968. As soon as school was over for the summer, Will's parents, my niece, Melissa, and her husband, Mark Olds, would bring Will, their 8-year-old son, over to our place, where the Eumelia is docked out front on one of The Pines piers, for sailing instruction on Saturday mornings. (Jack Olds, age 6, would go on another errand with a parent.) After the young Champnesses arrived (July 17) it became the custom for the Champness cousins to go along. On other days, Jacob would go out with Chris or Chris and Jacob would take Audrey and Lorelei out.
 
