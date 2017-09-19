@@ -3,7 +3,7 @@ layout: post
 title: Summer in Melbourne
 date: 2017-08-16
 author: Miriam
-tags: 
+tags: sunsets, sailing, kayaking, hiking, grandparents
 thumb: https://user-images.githubusercontent.com/13930968/30524658-9b1100e8-9bbd-11e7-9d82-ea4b2ff1dc21.jpg
 backgrounds:
 - https://user-images.githubusercontent.com/13930968/30524629-1b8cd6bc-9bbd-11e7-9068-bb3533c59e25.jpg
