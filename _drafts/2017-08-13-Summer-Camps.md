@@ -10,7 +10,7 @@ backgrounds:
 - https://user-images.githubusercontent.com/13930968/29281610-bbe00dea-80ed-11e7-96c2-cef2439a526c.jpg
 ---
 
-WITH our lifestyle we normally don’t even have a chance to participate in the type of organized activities available to homeschool kids. But it seems like every summer we are stationary long enough to fit in some summer camps. I think it makes for a good change for the girls. They always look forward to picking out which activities they want to participate in, and conversely, I think it makes them appreciate going back to our footloose and fancy free lifestyle of very few obligations. It’s always fun while it lasts, but everyone gets sick of getting up early, packing lunches and having to be out of the door with hair combed and shoes on before we normally even eat breakfast. 
+With our lifestyle we normally don’t even have a chance to participate in the type of organized activities available to homeschool kids. But it seems like every summer we are stationary long enough to fit in some summer camps. I think it makes for a good change for the girls. They always look forward to picking out which activities they want to participate in, and conversely, I think it makes them appreciate going back to our footloose and fancy free lifestyle of very few obligations. It’s always fun while it lasts, but everyone gets sick of getting up early, packing lunches and having to be out of the door with hair combed and shoes on before we normally even eat breakfast. 
 
 ![sunrise](https://user-images.githubusercontent.com/13930968/29300975-1bee9928-8147-11e7-8e8c-2f84ac707bd3.JPG)
 Catching Sunrise on the way to camp. Definitely up WAY earlier then we are used to! 
