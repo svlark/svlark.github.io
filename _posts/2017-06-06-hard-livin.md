@@ -3,7 +3,7 @@ layout: post
 title: Hard Livin'
 date: 2017-06-06
 author: Jacob
-tags: Geminga, St. Martin, SXM
+tags: Geminga, St. Martin, SXM, best laid plans
 thumb: https://cloud.githubusercontent.com/assets/13930968/26767852/26a0913e-4969-11e7-87a9-5097564aa3d8.jpg
 backgrounds:
 - https://cloud.githubusercontent.com/assets/13930968/26767852/26a0913e-4969-11e7-87a9-5097564aa3d8.jpg
