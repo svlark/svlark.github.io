@@ -10,7 +10,7 @@ backgrounds:
 - https://user-images.githubusercontent.com/13930968/30673812-5a64e070-9e3b-11e7-8605-27e72c6c9eb8.jpg
 ---
 
-We went down town to see the Brodway show Alladin! We had to wear fancy shoes that hurt our feet, I guess we're not used to wearing real shoes! At the end of the show streamers flew from the stage and all over everyone! It was such a good show, with lots of singing and dancing and even a flying carpet! We took the train back and when we got home it was really late! We got in bed at midnight.
+Grampsy took us down town to see the Brodway show Alladin! We had to wear fancy shoes that hurt our feet, I guess we're not used to wearing real shoes! At the end of the show streamers flew from the stage and all over everyone! It was such a good show, with lots of singing and dancing and even a flying carpet! We took the train back and when we got home it was really late! We got in bed at midnight.
 
 ![taking the train](https://user-images.githubusercontent.com/13930968/30673924-23345f1c-9e3c-11e7-82e0-67219d6f100c.jpg)
 getting ready to take the train
