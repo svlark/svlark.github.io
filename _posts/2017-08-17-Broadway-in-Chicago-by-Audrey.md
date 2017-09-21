@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Broadway in Chicago
+title: Broadway in Chicago by Audrey
 date: 2017-08-17
 author: Audrey
 tags:  Aladdin, Chicago Theatre, Train
