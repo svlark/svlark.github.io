@@ -11,7 +11,7 @@ We bought the first Lark, an Ericson 36C in Ft. Pierce.  We spent 2 years aboard
 
 Our adventures have taken us from Deadhorse to Moose Factory, from Caniapiscau to Kodiak, from James Bay to the Yucatan, and from Whitehorse to Spanish Wells, to Sint Maarten. Now we aspire to sail slowly around the world with our little family.
 
-Jacob grew up sailing with his family in Florida. He is a software engineer and a wild-eyed voluntaryist. April had never sailed herself until we bought Lark. She is a professional mom, and a part-time psychotherapist. Our kids are Audrey and Lorelei. Audrey loves swimming, skiing, reading, and any type of crafting.  Lorelei loves playing dress up, swimming and painting.  We are all really excited to do more and more sailing. Soon!
+Jacob grew up sailing with his family in Florida. He is a software engineer and a wild-eyed voluntaryist. April had never sailed herself until we bought Lark. She is a professional mom, and a part-time psychotherapist. Our kids are Audrey and Lorelei. Audrey loves swimming, skiing, reading, and any type of crafting.  Lorelei loves playing dress up, swimming and painting. We are all really excited to do more and more sailing. Soon!
 
 There's a great book, Sell up and Sail.  Well, we've sold up and are sailing!  As Bill and Laurel put it, we are ready to, "abandon brick walls and gardens, property taxes, and interference from authorities who continually tried to order what we might or might not do."
 
