@@ -1,3 +1,11 @@
+---
+layout: post
+title: Evacuating
+date: 2017-09-09
+author: Jacob
+tags:  SXM, Irma
+---
+
 This morning I did dishes in 1A at Koolbaai Villas in Sint Maarten with rainwater from the overnight bucket.   It was a thrill, ironically enough, in the brief space of days between Irma and Jose on SXM, to have enough rain to flush toilets and still do dishes.  The dirty dishes had been piling up and getting a bit disgusting.  After finishing the dishes, at about 6:30, I decided it was time to go for it.  
 
 I'd spent half the night thinking that with Jose coming I'd just bet that they'd be trying really  hard to evacuate tourists from the island.  I figured, "What the heck, I have a US passport.  I count."  I grabbed my passport, April's engagement ring from Tuesday's ditch bag, the 12-inch length of rebar I'd picked up in Marigot on Wednesday, left our computers and papers with Tanya and Julian, my hosts since Tuesday, and headed out. 
