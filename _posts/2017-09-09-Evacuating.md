@@ -4,7 +4,23 @@ title: Evacuating
 date: 2017-09-09
 author: Jacob
 tags:  SXM, Irma
+background:
+thumb: https://user-images.githubusercontent.com/13930968/31261308-f3538a5a-aa18-11e7-9031-1818810c5360.png
+backgrounds:
+- https://user-images.githubusercontent.com/13930968/31261209-61bfd30a-aa18-11e7-8503-da53a8b97fba.png
 ---
+
+![Loren during the storm](https://user-images.githubusercontent.com/13930968/31261256-af4a34a8-aa18-11e7-8c77-e8c3c9182889.png)
+
+![Koolbaai Villas after storm](https://user-images.githubusercontent.com/13930968/31261182-456ac2aa-aa18-11e7-9df3-01393bb75727.png)
+
+![Serafina's](https://user-images.githubusercontent.com/13930968/31261249-a72e5006-aa18-11e7-8366-e419bfcd5e46.png)
+
+![Geminga up high](https://user-images.githubusercontent.com/13930968/31261308-f3538a5a-aa18-11e7-9031-1818810c5360.png)
+
+![Geminga up close](https://user-images.githubusercontent.com/13930968/31261269-b641dc66-aa18-11e7-8e0a-c19c893721c0.png)
+
+![Lark](https://user-images.githubusercontent.com/13930968/31261275-bb996df0-aa18-11e7-8027-0278b25983b9.png)
 
 This morning I did dishes in 1A at Koolbaai Villas in Sint Maarten with rainwater from the overnight bucket.   It was a thrill, ironically enough, in the brief space of days between Irma and Jose on SXM, to have enough rain to flush toilets and still do dishes.  The dirty dishes had been piling up and getting a bit disgusting.  After finishing the dishes, at about 6:30, I decided it was time to go for it.  
 
@@ -27,3 +43,9 @@ What a terrifying yet bonding time we had together. I know beyond the shadow of 
 I wish I could wire you water...
 
 And thanks so much, Jim and Dan and all the others who helped April with getting me extracted.  I never would have known where or when to head out without the info you dug up.
+
+![the plane](https://user-images.githubusercontent.com/13930968/31261190-4dc24770-aa18-11e7-9812-1ed96fb4f65a.png)
+
+![loading onto the plane](https://user-images.githubusercontent.com/13930968/31261203-5caf61c8-aa18-11e7-93c2-d2920ad81329.png)
+
+![on the plane](https://user-images.githubusercontent.com/13930968/31261209-61bfd30a-aa18-11e7-8503-da53a8b97fba.png)
