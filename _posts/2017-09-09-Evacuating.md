@@ -7,7 +7,7 @@ tags:  SXM, Irma
 background:
 thumb: https://user-images.githubusercontent.com/13930968/31261308-f3538a5a-aa18-11e7-9031-1818810c5360.png
 backgrounds:
-- https://user-images.githubusercontent.com/13930968/31261209-61bfd30a-aa18-11e7-8503-da53a8b97fba.png
+- https://user-images.githubusercontent.com/13930968/31261269-b641dc66-aa18-11e7-8e0a-c19c893721c0.png
 ---
 
 ![Loren during the storm](https://user-images.githubusercontent.com/13930968/31261256-af4a34a8-aa18-11e7-8c77-e8c3c9182889.png)
@@ -17,8 +17,6 @@ backgrounds:
 ![Serafina's](https://user-images.githubusercontent.com/13930968/31261249-a72e5006-aa18-11e7-8366-e419bfcd5e46.png)
 
 ![Geminga up high](https://user-images.githubusercontent.com/13930968/31261308-f3538a5a-aa18-11e7-9031-1818810c5360.png)
-
-![Geminga up close](https://user-images.githubusercontent.com/13930968/31261269-b641dc66-aa18-11e7-8e0a-c19c893721c0.png)
 
 ![Lark](https://user-images.githubusercontent.com/13930968/31261275-bb996df0-aa18-11e7-8027-0278b25983b9.png)
 
