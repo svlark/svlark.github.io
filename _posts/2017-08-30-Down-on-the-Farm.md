@@ -44,7 +44,7 @@ the horses loved cold watermellon
 ![walking the farm](https://user-images.githubusercontent.com/13930968/30725786-bfd5b854-9f0c-11e7-9508-29cbeddc4b5b.jpg)
 
 ![corn palace](https://user-images.githubusercontent.com/13930968/30725799-cb143b28-9f0c-11e7-884c-3e72aa82c41d.jpg)
-this is the bathroom my Gramps built
+this is the bathroom my Grampsy and Ms. Lorelei built
 
 ![hottub](https://user-images.githubusercontent.com/13930968/30725865-37d19cba-9f0d-11e7-9f78-65cfcd897714.jpg)
 
