@@ -1,9 +1,9 @@
 ---
 layout: post
 title: Down on the Farm
-date: 2017-08-30
+date: 2017-08-30-down-on-the-farm
 author: Audrey
-tags: 
+tags: farm life, Lorelei, Sula, solar eclipse
 thumb:https://user-images.githubusercontent.com/13930968/30725953-bf0b7886-9f0d-11e7-9f8c-b4db70095ff8.jpg
 backgrounds:
 https://user-images.githubusercontent.com/13930968/30725714-50a809be-9f0c-11e7-88e7-cb35521e33d2.jpg
