@@ -4,7 +4,6 @@ title: Evacuating
 date: 2017-09-09
 author: Jacob
 tags:  SXM, Irma
-background:
 thumb: https://user-images.githubusercontent.com/13930968/31261308-f3538a5a-aa18-11e7-9031-1818810c5360.png
 backgrounds:
 - https://user-images.githubusercontent.com/13930968/31261269-b641dc66-aa18-11e7-8e0a-c19c893721c0.png
@@ -47,3 +46,5 @@ And thanks so much, Jim and Dan and all the others who helped April with getting
 ![loading onto the plane](https://user-images.githubusercontent.com/13930968/31261203-5caf61c8-aa18-11e7-93c2-d2920ad81329.png)
 
 ![on the plane](https://user-images.githubusercontent.com/13930968/31261209-61bfd30a-aa18-11e7-8503-da53a8b97fba.png)
+
+![made it](https://user-images.githubusercontent.com/13930968/31526181-d053631e-af8a-11e7-9e46-d6f19c0a6ce7.png)
