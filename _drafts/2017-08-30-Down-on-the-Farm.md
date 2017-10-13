@@ -4,7 +4,7 @@ title: Down on the Farm
 date: 2017-08-30
 author: Audrey
 tags: 
-thumb:https://user-images.githubusercontent.com/13930968/30726088-5d347efe-9f0e-11e7-95b4-e61e2bff44cb.jpg 
+thumb:https://user-images.githubusercontent.com/13930968/30725953-bf0b7886-9f0d-11e7-9f8c-b4db70095ff8.jpg
 backgrounds:
 https://user-images.githubusercontent.com/13930968/30725714-50a809be-9f0c-11e7-88e7-cb35521e33d2.jpg
 https://user-images.githubusercontent.com/13930968/30725733-6f7c3004-9f0c-11e7-9f72-f3ce75397b52.jpg
@@ -16,8 +16,10 @@ https://user-images.githubusercontent.com/13930968/30725962-d1eda1ea-9f0d-11e7-9
 We visited Ms. Lorelei and Susie's farm for the Total Solar Eclipse, and we got to stay and play on the farm for 2 days. There wont be another one for 7 more years in the United States. There were two choices for where we could spend the night, either in the trailer or the cabin, I spent one night in each. Ms. Lorelei also has three dogs,  Lovie, a golden lab, Sula, a sheep dog, and Scottsburg a Scottish terrier. I loved walking with Sula around the farm she loved to play fetch and walk with me.
 
 ![solar eclipse viewing party](https://user-images.githubusercontent.com/13930968/30726135-b50b94c8-9f0e-11e7-963f-daebac53c9ec.JPG)
+watching the eclipse
 
 ![Audrey and Sula](https://user-images.githubusercontent.com/13930968/30725977-dddd3e7a-9f0d-11e7-82f1-bbc00d468daf.jpg)
+me and Sula
 
 ![Audrey and Sula portrait](https://user-images.githubusercontent.com/13930968/30726088-5d347efe-9f0e-11e7-95b4-e61e2bff44cb.jpg)
 
