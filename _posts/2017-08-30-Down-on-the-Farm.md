@@ -1,14 +1,14 @@
 ---
 layout: post
 title: Down on the Farm
-date: 2017-08-30-down-on-the-farm
+date: 2017-08-30
 author: Audrey
 tags: farm life, Lorelei, Sula, solar eclipse
-thumb:https://user-images.githubusercontent.com/13930968/30725953-bf0b7886-9f0d-11e7-9f8c-b4db70095ff8.jpg
+thumb: https://user-images.githubusercontent.com/13930968/30725953-bf0b7886-9f0d-11e7-9f8c-b4db70095ff8.jpg
 backgrounds:
-https://user-images.githubusercontent.com/13930968/30725714-50a809be-9f0c-11e7-88e7-cb35521e33d2.jpg
-https://user-images.githubusercontent.com/13930968/30725733-6f7c3004-9f0c-11e7-9f72-f3ce75397b52.jpg
-https://user-images.githubusercontent.com/13930968/30725962-d1eda1ea-9f0d-11e7-9e43-2e36bd00d416.jpg
+- https://user-images.githubusercontent.com/13930968/30725714-50a809be-9f0c-11e7-88e7-cb35521e33d2.jpg
+- https://user-images.githubusercontent.com/13930968/30725733-6f7c3004-9f0c-11e7-9f72-f3ce75397b52.jpg
+- https://user-images.githubusercontent.com/13930968/30725962-d1eda1ea-9f0d-11e7-9e43-2e36bd00d416.jpg
 
 ---
 ![greatings](https://user-images.githubusercontent.com/13930968/30725813-ed7cfd12-9f0c-11e7-8186-8f0483478cbd.jpg)
