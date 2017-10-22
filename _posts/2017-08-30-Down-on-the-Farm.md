@@ -13,7 +13,7 @@ backgrounds:
 ---
 ![greatings](https://user-images.githubusercontent.com/13930968/30725813-ed7cfd12-9f0c-11e7-8186-8f0483478cbd.jpg)
 
-We visited Ms. Lorelei and Susie's farm for the Total Solar Eclipse, and we got to stay and play on the farm for 2 days. There wont be another one for 7 more years in the United States. There were two choices for where we could spend the night, either in the trailer or the cabin, I spent one night in each. Ms. Lorelei also has three dogs,  Lovie, a golden lab, Sula, a sheep dog, and Scottsburg a Scottish terrier. I loved walking with Sula around the farm she loved to play fetch and walk with me.
+We visited Ms. Lorelei and Susie's farm for the Total Solar Eclipse, and we got to stay and play on the farm for 2 days. There wont be another eclipse for 7 more years in the United States. There were two choices for where we could spend the night, either in the trailer or the cabin, I spent one night in each. Ms. Lorelei also has three dogs,  Lovie, a golden lab, Sula, a sheep dog, and Scottsburg a Scottish terrier. I loved walking with Sula around the farm and she loved to play fetch and walk with me.
 
 ![solar eclipse viewing party](https://user-images.githubusercontent.com/13930968/30726135-b50b94c8-9f0e-11e7-963f-daebac53c9ec.JPG)
 watching the eclipse
@@ -23,7 +23,7 @@ me and Sula
 
 ![Audrey and Sula portrait](https://user-images.githubusercontent.com/13930968/30726088-5d347efe-9f0e-11e7-95b4-e61e2bff44cb.jpg)
 
-   We also spent lots of time outdoors. There were tons of cool things to do, like wildflower picking. The farm has a lot of Goldenrod, Queen Anne's Lace, Clover, and Black Eyed Susans. Ms. Lorelei taught me the names of all of the flowers and we picked a bouquet for my mom.  There is a golf cart to get around in because the farm is so big (130 acres). In the mornings you can swim in the hot tub and take a shower in the outdoor outhouse my Grampsy built. Ms. Lorelei also has a lot of artwork on her farm, she has a Silver Rooster and two metal Herons looking out over the farm that she made, she is a blacksmith. I really enjoyed the trip, I can't wait to go back to the farm!
+   We also spent lots of time outdoors. There were tons of cool things to do, like wildflower picking. The farm has a lot of Goldenrod, Queen Anne's Lace, Clover, and Black Eyed Susans. Ms. Lorelei taught me the names of all of the flowers and we picked a bouquet for my mom.  There is a golf cart to get around in because the farm is so big (130 acres). In the mornings you can swim in the hot tub and take a shower in the outdoor outhouse my Grampsy built with Ms. Lorelei. Ms. Lorelei also has a lot of artwork on her farm, she has a Silver Rooster and two metal Herons looking out over the farm that she made, she is a blacksmith. I really enjoyed the trip, I can't wait to go back to the farm!
    
    ![flowers for mom](https://user-images.githubusercontent.com/13930968/30725884-54ea3bd6-9f0d-11e7-828f-e7e4c27b564d.jpg)
    This was the boquet I picked for my mom. 
