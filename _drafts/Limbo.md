@@ -1,9 +1,49 @@
+![fall collage](https://user-images.githubusercontent.com/13930968/32258127-cbcda5f6-be86-11e7-9fc6-8e65d45d6788.jpg)
+
 I haven’t been writing much on the blog, or Facebook, or really documenting our life much (even in photos) for the last couple of months. I think it's really because there isn’t much of anything new to write about. After the storm, and knowing that our boat was damaged, that is really the last of the information that we have received that will help us move forward. 
 
 We have discovered that our boat is more damaged then originally suspected, and that the insurance company can not make any decisions until it has a thorough look, which it won’t do until it is back up on its stands. After Jacob’s recent trip to St. Martin (link to J’s blog) to help move things forward, we learned that it could a month or more before Geminga, our boat yard, is able to accomplish that. 
 
 In the meantime, we are staying with my dad. It is very comfortable, and my dad makes us feel very welcome. It reminds me of what it might be like to have a sister wife. He does lot of the grocery shopping, cooking and laundry. He is also up for babysitting on a whim, and we definitely take him up on that! At the same time, after two and a half months, we feel the urge to rediscover some of what feels normal for our family. 
 
+![dad grilling](https://user-images.githubusercontent.com/13930968/32257966-08ce6612-be86-11e7-8a56-d27095877f55.jpg)
+
+![uncle richard on deck](https://user-images.githubusercontent.com/13930968/32257971-12126174-be86-11e7-9a66-730f705faf93.jpg)
+
+![cousin time](https://user-images.githubusercontent.com/13930968/32258016-573f5752-be86-11e7-983f-f3382971d783.jpg)
+
+![puppy time](https://user-images.githubusercontent.com/13930968/32258009-513d64e8-be86-11e7-84b5-f0db4b7ffded.jpg)
+
+![biking collage](https://user-images.githubusercontent.com/13930968/32258112-b927ec36-be86-11e7-8ba0-a6b2c188067a.jpg)
+
+![roasting marshmellows](https://user-images.githubusercontent.com/13930968/32257974-19f1b980-be86-11e7-8c17-dedc296ea6bc.jpg)
+
+![working with grampsy](https://user-images.githubusercontent.com/13930968/32257979-1f15f598-be86-11e7-871c-b62ef1442a03.jpg)
+
+![spook shed collage](https://user-images.githubusercontent.com/13930968/32258142-d98a8290-be86-11e7-8840-76ce923942f9.jpg)
+
+![jackolanaterns](https://user-images.githubusercontent.com/13930968/32258093-a37a73e0-be86-11e7-8483-e6af17e5bbd0.jpg)
+
+![halloween collage](https://user-images.githubusercontent.com/13930968/32258152-e143166e-be86-11e7-95bd-912309e5db47.jpg)
+
 We have decided to try and make the best of this limbo period and the holidays by doing some traveling in the style we did last winter. We have booked 2 airbnbs to last us 10 weeks and take us through mid-January. 1st we go to South Carolina for Lorelei’s birthday and Thanksgiving, and then we head to Playa Del Carmen, Mexico for Christmas and our anniversary. 
 
-Here are a few photos from our time in Chicago:
+Here are a few photos from our time in Chicago (I guess I still have a lot of photos!):
+
+![golfing with up](https://user-images.githubusercontent.com/13930968/32257968-0d08dfa0-be86-11e7-920e-0ad751521912.jpg)
+
+![maya and natalie](https://user-images.githubusercontent.com/13930968/32258001-41bd4092-be86-11e7-86c5-c977f9936125.jpg)
+
+![grampsy barrel](https://user-images.githubusercontent.com/13930968/32258057-732e41bc-be86-11e7-9da3-6435e58bf5ea.jpg)
+
+![trail ride](https://user-images.githubusercontent.com/13930968/32258072-85d33fd4-be86-11e7-93b2-c55ab58211ef.jpg)
+
+![bison bluff collage](https://user-images.githubusercontent.com/13930968/32258097-a76b01d6-be86-11e7-9d6c-95a44bb3633b.jpg)
+
+![apple picking collage](https://user-images.githubusercontent.com/13930968/32258103-b0a4c516-be86-11e7-9791-f9fff2e356c2.jpg)
+
+![water park colage](https://user-images.githubusercontent.com/13930968/32258131-ce9490ce-be86-11e7-8d81-46c7f96cfe23.jpg)
+
+![lake geneva colage](https://user-images.githubusercontent.com/13930968/32258133-d257c7da-be86-11e7-98af-efbe34128de4.jpg)
+
+
