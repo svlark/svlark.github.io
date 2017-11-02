@@ -39,6 +39,7 @@ Golden Dragon's up!
 ![lark over looking aft](https://user-images.githubusercontent.com/13930968/32033952-3b86d7d4-b9bc-11e7-8920-c3f637eacc72.png)
 Lark on her side
 ![Lark transom](https://user-images.githubusercontent.com/13930968/32308289-219c9f74-bf53-11e7-817f-a246165f6262.png)
+Dominoes, writ large
 ![jackstand](https://user-images.githubusercontent.com/13930968/32033913-feeecbe2-b9bb-11e7-8d9f-c41b8168f5dc.png)
 A jack-stand runs through it
 ![inclinometer](https://user-images.githubusercontent.com/13930968/32307573-19e8c964-bf4f-11e7-98fa-63986497deec.png)
