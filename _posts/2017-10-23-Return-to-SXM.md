@@ -45,7 +45,7 @@ A jack-stand runs through it
 ![inclinometer](https://user-images.githubusercontent.com/13930968/32307573-19e8c964-bf4f-11e7-98fa-63986497deec.png)
 She's heeled 50° to port.
 ![life rafts](https://user-images.githubusercontent.com/13930968/32033974-53f1321a-b9bc-11e7-9eeb-049073e97b3c.png)
-Lift rafts which inflated on boats that sank in the lagoon. The gendarmes picked them up by while diving the wrecks for bodies and left them along the bulkhead by Lark
+Life rafts which inflated on boats that sank in the lagoon. The gendarmes picked them up by while diving the wrecks for bodies and left them along the bulkhead by Lark
 ![six boats right](https://user-images.githubusercontent.com/13930968/32307569-14436708-bf4f-11e7-9f7c-ed218b8a3f43.png)
 Lark is to the left.  Six boats are underwater to the right.
 
