@@ -51,9 +51,9 @@ Lark is to the left.  Six boats are underwater to the right.
 
 
 ![Marina Port La Royale](https://user-images.githubusercontent.com/13930968/32308301-302af644-bf53-11e7-8fcd-66499af5ead1.png)
-Marina Part La Royale, former site of Le Croissanterie, La Creperie, Tropicana, Cafe Do Brasil, Le Galion, Viet Thai, Cafe de Paris, Spinnaker, Le Pate at Le Main, and the spot in the corner where we met Ran Sailing.  Le Pate at Le Main is the only one left.
+Marina Part La Royale, former site of Le Croissanterie, La Creperie, Tropicana, Cafe Do Brasil, Le Galion, Viet Thai, Cafe de Paris, Spinnaker, Le Pate et Le Main, and the spot in the corner where we met Ran Sailing.  Le Pate et Le Main is the only one left.
 ![foredeck](https://user-images.githubusercontent.com/13930968/32034043-bc25735a-b9bc-11e7-960e-26e1727a7477.png)
-This boat's foredeck is still cleated to the bulkhead.  Whos knows where the rest of the boat is.
+This boat's foredeck is still cleated to the bulkhead in Marina Part La Royale.  Whos knows where the rest of the boat is.
 
 
 
