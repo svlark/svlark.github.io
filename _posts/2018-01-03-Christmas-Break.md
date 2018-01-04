@@ -15,7 +15,7 @@ I’ve been looking forward to Jacob’s mandatory break from work for a long ti
 
 ![Jacob with his tacos](https://user-images.githubusercontent.com/13930968/34547976-f94cd7cc-f0cc-11e7-8e20-2c65f76f895b.jpg)
 
-Thankfully he made a full recovery and we got immediately to exploring the Maya Riviera. We had two days left with Grampsy, and our first stop was Chikin Ha. It was a neat collection of cenotes that included 3 zip lines, bikes, a cave with stalagmites and stalactites, and a very interesting Mayan ceremony. It was the first time I have ever heard anyone speaking in Mayan! 
+Thankfully he made a full recovery and we got immediately to exploring the Riviera Maya. We had two days left with Grampsy, and our first stop was Chikin Ha. It was a neat collection of cenotes that included 3 zip lines, bikes, a cave with stalagmites and stalactites, and a very interesting Mayan ceremony. It was the first time I have ever heard anyone speaking in Mayan! 
 
 ![Mayan Ceremony](https://user-images.githubusercontent.com/13930968/34547780-9a2e2f62-f0cb-11e7-8467-c921334265a5.jpg)
 
@@ -42,7 +42,7 @@ We had heard about the Akumal Monkey Sanctuary where they care for and rehabilit
 
 ![Family Monkeys](https://user-images.githubusercontent.com/13930968/34547802-c9a1e16c-f0cb-11e7-8a40-20c4e1edd9cc.jpg)
 
-We visited Coba, another ancient Mayan village, and found it way less touristy then Chichen Itza. There were still lots of people and they had tricycle taxis to shuttle shaky legged pyramid climbers, but other then that it was a gorgeous Mayan village in the jungle. We rented bikes to get between the different settlements, and as we peddled through the jungle I could imagine ancient Mayans going about their lives. It is the only pyramid nearby that you are allowed to climb, but we have heard that they are going to put a stop to that in 2018, so we made sure to fit it in before the new year. Just outside of Coba is a collection of underground cenotes, so we explored two. It was pretty eerie to descend 6 flights of stairs underground and go swimming,  it actually had me feeling a bit claustrophobic. 
+We visited Coba, another ancient Mayan village, and found it way less touristy then Chichen Itza. There were still lots of people and they had tricycle taxis to shuttle shaky-legged pyramid climbers, but other than that it was a gorgeous Mayan village in the jungle. We rented bikes to get between the different settlements, and as we peddled through the jungle I could imagine ancient Mayans going about their lives. It is the only pyramid nearby that you are allowed to climb, but we have heard that they are going to put a stop to that in 2018, so we made sure to fit it in before the new year. Just outside of Coba is a collection of underground cenotes, so we explored two. It was pretty eerie to descend 6 flights of stairs underground and go swimming.  It actually had me feeling a bit claustrophobic. 
 
 ![biking at Coba](https://user-images.githubusercontent.com/13930968/34547671-cf8808e6-f0ca-11e7-87a6-995bac179180.jpg)
 
