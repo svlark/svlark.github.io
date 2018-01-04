@@ -26,6 +26,7 @@ Thankfully he made a full recovery and we got immediately to exploring the Maya 
 ![Jacob ziplining](https://user-images.githubusercontent.com/13930968/34547956-ccd83df8-f0cc-11e7-96e5-139da7a0d298.jpg)
 
 ![Grampsy and girls on Christmas](https://user-images.githubusercontent.com/13930968/34547965-e4f100a0-f0cc-11e7-91f7-50c67ed49716.jpg)
+Grampsy with the Girls downtown on Christmas
 
 Our guide from Chikin Ha recommended a beach off of the beaten path with snorkeling just off shore and a cool play area for the kids. So we had a very relaxing beach day. Grampsy even got a whole grouper fresh off of the fire.
 
