@@ -28,7 +28,7 @@ The last 3 km were a boardwalk straight through the heart of the jungle or bosqu
 
 ![family shot](https://user-images.githubusercontent.com/13930968/36131703-c1659fa2-1038-11e8-9891-6439ae6680c5.jpg)
 
-Along the way we saw a ton of animals, including capuchins, spider monkeys, and howlers; sloths; and innumerable spiders. One the spider was as big as our hand. Lorelei almost grabbed it as it was snuggled up under one of the hand railings eating a meal, right at her eye level. 
+Along the way we saw a ton of animals, including capuchins, spider monkeys, and howlers; sloths; and innumerable spiders. One of the spider was as big as our hand. Lorelei almost grabbed it as it was snuggled up under one of the hand railings eating a meal, right at her eye level. 
 
 ![howlers](https://user-images.githubusercontent.com/13930968/36131574-07b59b2a-1038-11e8-8d69-eb20fa8e8276.jpg)
 Howlers in the trees
