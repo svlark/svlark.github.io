@@ -34,7 +34,7 @@ Along the way we saw a ton of animals, including capuchins, spider monkeys, and 
 Howlers in the trees
 
 ![racoon](https://user-images.githubusercontent.com/13930968/36131610-31e86b70-1038-11e8-9c56-2fbee2a01a09.jpg)
-Racoon
+Raccoon
 
 ![sleepy sloth](https://user-images.githubusercontent.com/13930968/36131621-442ffd5c-1038-11e8-8bf3-d5763c069abf.jpg)
 Sleepy sloth
