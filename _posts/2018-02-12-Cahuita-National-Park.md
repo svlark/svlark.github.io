@@ -13,7 +13,7 @@ backgrounds:
 ![Audrey on the beach](https://user-images.githubusercontent.com/13930968/36131589-1625d742-1038-11e8-823c-57adb7d8c2c1.jpg)
 
 
-For our first Saturday in Cost Rica, we decided to do a 10 km hike through Cahuita National Park, just north of Puerto Viejo. This section of the Carribean coast has a famously consistent and powerful shore break, known as the Salsa Brava, which formed a constant background to the day’s adventure. After rounding the last curve of shoreline, the beaches turned volcanic, with dark black, almost purple sand.  Lorelei managed to smear it all over herself and look like a coal miner! 
+For our first Saturday in Costa Rica, we decided to do a 10 km hike through Cahuita National Park, just north of Puerto Viejo. This section of the Carribean coast has a famously consistent and powerful shore break, known as the Salsa Brava, which formed a constant background to the day’s adventure. After rounding the last curve of shoreline, the beaches turned volcanic, with dark black, almost purple sand.  Lorelei managed to smear it all over herself and look like a coal miner! 
 
 ![big hermit crab](https://user-images.githubusercontent.com/13930968/36131598-2413132e-1038-11e8-9bdb-e2b80d3e9d08.jpg)
 There were tons of hermit crabs on the beach section of the hike! Whole families would scurry down the path as we approached. 
