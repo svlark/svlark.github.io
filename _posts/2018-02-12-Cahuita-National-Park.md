@@ -3,7 +3,7 @@ layout: post
 title: Cahuita National Park
 date: 2019-02-12
 author: Jacob and April
-tags:
+tags: Costa Rica, monkeys, sloths, spiders, beach, hiking
 thumb: https://user-images.githubusercontent.com/13930968/36131677-908de326-1038-11e8-9270-2c419b25f90a.jpg
 backgrounds:
 - https://user-images.githubusercontent.com/13930968/36131724-e234b2cc-1038-11e8-87d6-88c48f6ccc9a.jpg
@@ -24,7 +24,7 @@ Audrey trying to get her snail bindi to stick
 ![shaking coconuts](https://user-images.githubusercontent.com/13930968/36131658-6fb26794-1038-11e8-8052-3ea2c5232db4.jpg)
 Listening for coconut water
 
-The last 3 km were a boardwalk straight through the heart of the jungle or bosque. We were completely surrounded by the noises jungle-- birds, frogs, insects, howler monkeys and who knows what else! 
+The last 3 km were a boardwalk straight through the heart of the jungle or bosque. We were completely surrounded by the noises of the jungle-- birds, frogs, insects, howler monkeys and who knows what else! 
 
 ![family shot](https://user-images.githubusercontent.com/13930968/36131703-c1659fa2-1038-11e8-9891-6439ae6680c5.jpg)
 
