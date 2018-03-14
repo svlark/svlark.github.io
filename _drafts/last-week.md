@@ -1,0 +1,12 @@
+
+Last Friday we said goodbye to our neighbors in Puerto Viejo, the agoutis, howlers, and sloths, and took the 5 hour bus ride to San Jose.  It was in the mid 90s when we left Puerto Viejo and in the upper 50s when arrived in San Jose.
+
+April had found us another very unique hotel in San Jose.  This one was in a historical-looking old building with an ice-cold swimming pool with a hot tub next to it but well above it, with a tiled and very steep slide between the two.  Our room was huge -- must've been something like 900 square feet -- with 10-foot ceiling and not a single window.
+
+We took a little stroll around downtown San Jose and went to Chinatown for dinner. On the way back we were mesmerized for half an hour by a busker with an eight-foot tall unicycle.  He actually rode the cycle for about the last 3 minutes of that, but spent the entire time leading up to it just working the crowd, cracking wise, and passing around a hat which people eagerly filled with bills and change.
+
+Saturday, we caught a plane to Miami.  It was delayed 3 hours thanks to terrible weather in New York, but when we finally arrived, who should we find waiting for us at the hotel, but Grandmiri and Papa!  We hung out with them at the hotel restaurant all evening.  The waiter seemed to know we had no plans to go anywhere for the evening, because he seemed to have no plans to get our orders on table.  
+
+Sunday morning we had another whirlwind visit with Gandmiri and Papa over hotel breakfast.  Then it was off to the airport, for our flight to SXM.  We got all eight of our "carry-ons" stowed in the overhead compartments without difficulty, having reduced the contents of the girls' bags by about ten percent, which we gave to Grandmiri and Papa to leave in our storage unit, err, car, in Palm Bay.
+
+We touched down in the evening, at St. Maarten's tent airport, renovated courtesy of Irma, with  nothing but Costa Rican Colones (not one of the three accepted currencies here) ready to make some hard choices about our boat. Either way we went, it would not be easy. If we kept her, there would be months of work and expense to put her back together, and next hurricane season was only three months away. If we let her go, we would be truly homeless, and all of the hopes we had tied up in finding the boat of our dreams would be gone without ever putting her in the water. 
