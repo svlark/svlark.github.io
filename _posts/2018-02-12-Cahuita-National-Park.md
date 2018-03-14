@@ -1,7 +1,7 @@
 ---
 layout: post
 title: Cahuita National Park
-date: 2019-02-12
+date: 2018-02-12
 author: Jacob and April
 tags: Costa Rica, monkeys, sloths, spiders, beach, hiking
 thumb: https://user-images.githubusercontent.com/13930968/36131677-908de326-1038-11e8-9270-2c419b25f90a.jpg
