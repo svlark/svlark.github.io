@@ -11,7 +11,7 @@ backgrounds:
 - https://lh3.googleusercontent.com/-jSA9RDYSc1M/Vf9ZSly9J_I/AAAAAAAAFy8/RQLlZdyXDV0/s640/blogger-image-917237636.jpg
 ---
 
-Almost exactly 6 months after hurricane Irma, the insurance company decided to declare our boat a total loss, and we were able to make the decision to let her go. 
+Six months after hurricane Irma, the insurance company decided to declare our boat a total loss, and we were able to make the decision to let her go. 
 
 Things had been starting to move with insurance ever since Bon Edda got stood up.  We'd been looking at options in anticipation of needing to reach a decision quickly when insurance finally moved.  We'd looked at Maramus and Tayanas for sale all over the the world, but nothing we saw seemed quite right.  
 
