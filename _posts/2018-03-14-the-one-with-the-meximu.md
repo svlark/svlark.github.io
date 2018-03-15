@@ -19,9 +19,9 @@ Our good friends Will and Wendy had checked out a Tayana for us in Grenada sever
 
 It seemed that the only option for us was to fix Bon Edda, but even if insurance were to pay out the full covered amount, we'd still have to come up with $25K out of pocket just to get her back to pre-Irma condition.  
 
-It seemed pointless, but I posted on an Amel owners group asking if anyone had a Maramu for sale.  To my surprise, a couple from the UK responded that they hadn't got around to listing it yet but were thinking about selling their Maramu in Mexico.  She mentioned a number that was about half of what our insurance payment would be.  It really seemed too good to be true.  
+It seemed pointless, but I posted on an Amel owners group asking if anyone had a Maramu for sale.  To my surprise, a couple from the UK responded that they hadn't got around to listing it yet but were thinking about selling their Maramu in Mexico.  They had already done many of the same upgrades we were planning for Bon Edda, and the price was right.  It really seemed too good to be true.  
 
-On top of it all, Dave and Tanya, cruising friends from Nederland, had just arrived in Mexico and were within dinghying distance of the new boat.  They made arrangements to meet a friend of the owners and go look at her the following Monday, the day after we would arrive in SXM.  This was all arranged before we left Costa Rica, but we would have to wait to four long days to hear Dave and Tanya's report. 
+On top of it all, Dave and Tanya, cruising friends from Nederland, had just arrived in Mexico and were within dinghying distance of the new boat.  They made arrangements to meet a friend of the owners and go look at her the following Monday, the day after we would arrive in Sint Maarten.  This was all arranged before we left Costa Rica, but we would have to wait four long days to hear Dave and Tanya's report. 
 
 In the meantime, we travelled to SXM and April and the girls got their first look at Bon Edda since the storm.  It was hard, because while we knew how expensive she'd be to fix, she didn't look too bad.  Our emotions were at war with our intellects, as we loved Bon Edda and wanted to keep her and couldn't help feeling that she wasn't that badly damaged, but we also knew what the repair estimates added up to. 
 
@@ -66,7 +66,4 @@ packing our pallet to ship out
 ![beach day](https://user-images.githubusercontent.com/13930968/37440333-a8421832-27d2-11e8-8bdd-6c41a775dc17.jpg)
 We have still found some time to laze around on the beautiful beaches. 
 
-
 It's been a long week and a half!
-
-Since deciding to let Bon Edda go, we are officially homeless, but have a VERY real prospect in the works, that we can't help but be excited over. More news soon!
