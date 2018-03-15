@@ -11,7 +11,7 @@ backgrounds:
 - https://user-images.githubusercontent.com/13930968/37440193-07d48902-27d2-11e8-9c06-560b3eb0cafe.jpg
 ---
 
-Six months after hurricane Irma, the insurance company decided to declare our boat a total loss, and we were able to make the decision to let her go. 
+Six months after hurricane Irma, the insurance company decided to declare our the second Lark a total loss, and we were able to make the decision to let her go.  Since then, we have referred to her as "Bon Edda," the name on her transom.
 
 Things had been starting to move with insurance ever since Bon Edda got stood up. We are calling our boat in St. Martin Bon Edda now, to take a little bit of the sentimentality out of it, and because we never got around to changing the name on the transom.  We'd been looking at options in anticipation of needing to reach a decision quickly when insurance finally moved.  We'd looked at Maramus and Tayanas for sale all over the the world, but nothing we saw seemed quite right.  
 
