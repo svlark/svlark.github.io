@@ -1,6 +1,6 @@
 ---
 layout: post
-title: The Meximu
+title: The One With the Meximu
 date: 2018-03-14
 author: Jacob, April
 tags: SXM, Mexico, Maramu
