@@ -19,7 +19,7 @@ Our good friends Will and Wendy had checked out a Tayana for us in Grenada sever
 
 It seemed that the only option for us was to fix Bon Edda, but even if insurance were to pay out the full covered amount, we'd still have to come up with $25K out of pocket just to get her back to pre-Irma condition.  
 
-It seemed pointless, but I posted on an Amel owners group asking if anyone had a Maramu for sale.  To my surprise, a lady and her husband from the UK responded that they hadn't got around to listing it yet but were thinking about selling their Maramu in Mexico.  She mentioned a number that was about half of what our insurance payment would be.  It really seemed too good to be true.  
+It seemed pointless, but I posted on an Amel owners group asking if anyone had a Maramu for sale.  To my surprise, a couple from the UK responded that they hadn't got around to listing it yet but were thinking about selling their Maramu in Mexico.  She mentioned a number that was about half of what our insurance payment would be.  It really seemed too good to be true.  
 
 On top of it all, Dave and Tanya, cruising friends from Nederland, had just arrived in Mexico and were within dinghying distance of the new boat.  They made arrangements to meet a friend of the owners and go look at her the following Monday, the day after we would arrive in SXM.  This was all arranged before we left Costa Rica, but we would have to wait to four long days to hear Dave and Tanya's report. 
 
