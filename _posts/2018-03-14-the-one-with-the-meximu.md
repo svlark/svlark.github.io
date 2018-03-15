@@ -13,7 +13,7 @@ backgrounds:
 
 Six months after hurricane Irma, the insurance company decided to declare our the second Lark a total loss, and we were able to make the decision to let her go.  Since then, we have referred to her as "Bon Edda," the name on her transom.
 
-Things had been starting to move with insurance ever since Bon Edda got stood up. We are calling our boat in St. Martin Bon Edda now, to take a little bit of the sentimentality out of it, and because we never got around to changing the name on the transom.  We'd been looking at options in anticipation of needing to reach a decision quickly when insurance finally moved.  We'd looked at Maramus and Tayanas for sale all over the the world, but nothing we saw seemed quite right.  
+Things had been starting to move with insurance ever since Bon Edda got stood up. We'd been looking at options in anticipation of needing to reach a decision quickly when insurance finally moved.  We'd looked at Maramus and Tayanas for sale all over the the world, but nothing we saw seemed quite right.  
 
 Our good friends Will and Wendy had checked out a Tayana for us several months back and said it looked great and it was still listed, but we have eyes only for Maramus now.  There was Maramu we looked at in Florida that was only OK, but too expensive.  Another one in Florida looked good from the listing, but was very expensive, and we hadn't been able to reach the seller after weeks of trying.  I finally got through to him during our last week in Costa Rica, and the guy actually wanted me to pay him for a dinghy ride to go look at the boat out on a mooring ball.  We even had a pre-survey done on a Maramu in France, but the condition report was disappointing.  
 
