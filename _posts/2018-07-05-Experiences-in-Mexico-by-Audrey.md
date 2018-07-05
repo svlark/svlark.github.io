@@ -1,6 +1,7 @@
+---
 layout: post
 title: Experiences in Mexico by Audrey
-date: 2018-02-01
+date: 2018-07-05
 author: Audrey
 tags:
 thumb: https://user-images.githubusercontent.com/13930968/42349782-001154ba-806b-11e8-96a3-bf912311fe69.jpeg
