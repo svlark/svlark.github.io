@@ -6,7 +6,7 @@ author: Jacob
 tags: Guatemala, Rio Dulce, Raul
 thumb: https://user-images.githubusercontent.com/13930968/42668586-b426ba14-860e-11e8-9ded-562008cf6166.png
 backgrounds:
-- https://user-images.githubusercontent.com/13930968/42670724-cc56371c-8619-11e8-8000-e8a143167938.png
+- https://user-images.githubusercontent.com/13930968/42671904-e899b5ce-861f-11e8-940b-c28e90e3694f.png
 ---
 
 We took Orion 1 out of Mexico and brought Lark into Guatemala three days later.  
