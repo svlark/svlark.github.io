@@ -11,7 +11,7 @@ backgrounds:
 
 We took Orion 1 out of Mexico and brought Lark into Guatemala three days later.  
 
-We had an absolutely beautiful sail down from Isla Mujeres with breeze from the ESE consistently blowing 15-25 knots.  We had several periods of 8-9 knots sustained boat speed which was record for us all.  
+We had a perfect sail down from Isla Mujeres with breeze from the ESE consistently blowing 15-25 knots.  We had several periods of 8-9 knots sustained boat speed which was record for us all.  
 
 We'd been warned that 3 days of beam seas could be trying, and there certainly were times when it seemed that the simplest task was not worth the trouble of standing up to accomplish, but in all honesty it was really pretty fun.
 
