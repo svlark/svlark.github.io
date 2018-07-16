@@ -9,7 +9,7 @@ backgrounds:
 - https://user-images.githubusercontent.com/13930968/42743603-ae9105a2-8882-11e8-9f87-3d4ada9eb26e.jpeg
 ---
 
-I thought I could get away with leaving this one knife out to wash in the morning.
+I thought I could get away with leaving this knife out overnight to wash in the morning.
 ![ant fiesta](https://user-images.githubusercontent.com/13930968/42743243-67e247ea-887f-11e8-8835-224548929976.jpeg)
 
 This cacterpillar had no sympathy for me.
