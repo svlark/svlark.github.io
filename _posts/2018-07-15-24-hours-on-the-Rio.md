@@ -4,6 +4,9 @@ title: 24 hours on the Rio
 date: 2018-07-15
 author: Jacob
 tags: Tijax, Rio Dulce, Gutemala
+thumb: https://user-images.githubusercontent.com/13930968/42743747-f1045fc8-8883-11e8-9c86-b48f7004125e.jpeg
+backgrounds:
+- https://user-images.githubusercontent.com/13930968/42743603-ae9105a2-8882-11e8-9f87-3d4ada9eb26e.jpeg
 ---
 
 I thought I could get away with leaving this one knife out to wash in the morning.
