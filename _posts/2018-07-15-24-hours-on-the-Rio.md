@@ -7,6 +7,8 @@ tags: Tijax, Rio Dulce, Gutemala
 thumb: https://user-images.githubusercontent.com/13930968/42743747-f1045fc8-8883-11e8-9c86-b48f7004125e.jpeg
 backgrounds:
 - https://user-images.githubusercontent.com/13930968/42743603-ae9105a2-8882-11e8-9f87-3d4ada9eb26e.jpeg
+- https://user-images.githubusercontent.com/13930968/42743919-94601896-8885-11e8-81fb-1c3e4fd21a22.jpeg
+- https://user-images.githubusercontent.com/13930968/42743251-68a5490c-887f-11e8-8719-157407af0b6b.jpeg
 ---
 
 I thought I could get away with leaving this knife out overnight to wash in the morning.
