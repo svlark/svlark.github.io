@@ -4,9 +4,12 @@ title: Guatemala&colon; The First Half
 date: 2018-07-28
 author: Audrey
 tags: Audrey, boat kids, Tijax, Livingston, Rio Dulce, Guatemala
-thumb: https://user-images.githubusercontent.com/13930968/43361929-18931f86-929b-11e8-8830-4b1f4028ebc5.jpg 
+thumb: https://user-images.githubusercontent.com/13930968/43362281-dd8aa7ca-92a3-11e8-9569-803dc17cf26f.jpg
 backgrounds:
-- https://user-images.githubusercontent.com/13930968/43361929-18931f86-929b-11e8-8830-4b1f4028ebc5.jpg
+- https://user-images.githubusercontent.com/13930968/43361925-173110c6-929b-11e8-987c-c58d3f4cd17e.jpg
+- https://user-images.githubusercontent.com/13930968/43362019-3d127526-929d-11e8-9026-bef0ef3edbbc.jpg
+- https://user-images.githubusercontent.com/13930968/43362283-ddd1af80-92a3-11e8-8e62-ac86e8ec5136.jpg
+- https://user-images.githubusercontent.com/13930968/43362382-d792f4f6-92a5-11e8-8aa1-aab1b42c5537.jpg
 ---
 
 # Guatemala: The First Half
