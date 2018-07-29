@@ -50,7 +50,8 @@ In Guatemala there is a huge cruising community and a lot of kids. The main peop
 Right now, our boat is being painted and we moved off and into a little cabin in the jungle. It has two bedrooms, a bathroom (that’s really easy to get locked inside), a kitchen and screen porch. It also has a pool and a sweet puppy (that unfortunately may have a skin disease)!
 
 ![Lark paint](https://user-images.githubusercontent.com/13930968/43362280-dd6d00e4-92a3-11e8-87d7-831434d99965.jpg)
- 
+![la cabina](https://user-images.githubusercontent.com/13930968/43362382-d792f4f6-92a5-11e8-8aa1-aab1b42c5537.jpg)
+
 
 
 
