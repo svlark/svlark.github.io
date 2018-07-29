@@ -43,10 +43,10 @@ Me and Lorelei with Lark at Tijax
 The hanging bridge through the jungle
 
 ![Torre](https://user-images.githubusercontent.com/13930968/43362028-5f015134-929d-11e8-9b31-c4882e1c1223.jpg)
-El Torre Mirador
+I'm at the top and Lo's at the bottom
 
 ![On top of the Torre](https://user-images.githubusercontent.com/13930968/43361928-1801ee12-929b-11e8-8fbb-3f3daf7122ba.jpg)
-I'm at the top and Lo's at the bottom
+It feels like you can see Honduras from here
 
 ![family pool](https://user-images.githubusercontent.com/13930968/43362019-3d127526-929d-11e8-9026-bef0ef3edbbc.jpg)
 We love the pool at Tijax
