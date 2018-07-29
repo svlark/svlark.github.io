@@ -26,7 +26,7 @@ After our voyage when we finally arrived in Guatemala. The first thing we did wa
 ![On the Rio in the rain](https://user-images.githubusercontent.com/13930968/43361926-17787312-929b-11e8-8b84-a822c6dd52fc.jpg)
 
 ### Tijax
-Our Marina was called Tijax (pronounced Tee-hosh).  It is a beautiful little place in the jungle.  Tijax has a pool, a nature hike, and a restaurant. We love the hike to the look-out tower, and across the hanging bridges, 30 feet in the air. So far, we have done it three times… and even brought our friends to see the hike.
+Our marina was called Tijax (pronounced Tee-hosh).  It is a beautiful little place in the jungle.  Tijax has a pool, a nature hike, and a restaurant. We love the hike to the look-out tower, and across the hanging bridges, 30 feet in the air. So far, we have done it three times… and even brought our friends to see the hike.
 
 ![Audrey and Larelei with Lark at Tijax](https://user-images.githubusercontent.com/13930968/43361995-a49c0046-929c-11e8-87ac-c132e2e1dcc4.jpg)
 ![Tijax hike](https://user-images.githubusercontent.com/13930968/43361990-a4284b24-929c-11e8-837a-c1629db5c9f8.jpg)
@@ -45,7 +45,7 @@ In Guatemala there is a huge cruising community and a lot of kids. The main peop
 ![boat kids in the rain](https://user-images.githubusercontent.com/13930968/43362284-ddfab9ac-92a3-11e8-9cec-a422f0c0242c.jpg)
 
 ### The Ukeladies                 
-  Ms. Tanya, the mom on Take Two, is teaching us to play the Ukulele. We are taking lessons 3 times a week and working on a few songs but the only one we played on open mic night was The Lion Sleeps Tonight. I really enjoy it, and I feel like I’m getting better fast! I even played an open mic night by myself once (my mom was too nervous to do a duet with me).
+  Ms. Tanya, the mom on the big blue catamaran, is teaching us to play the ukulele. We are taking lessons 3 times a week and working on a few songs but the only one we played on open mic night was The Lion Sleeps Tonight. I really enjoy it, and I feel like I’m getting better fast! I even played an open mic night by myself once (my mom was too nervous to do a duet with me).
 
 ![Ukeladies](https://user-images.githubusercontent.com/13930968/43361929-18931f86-929b-11e8-8830-4b1f4028ebc5.jpg)
 ![open mic](https://user-images.githubusercontent.com/13930968/43362281-dd8aa7ca-92a3-11e8-9569-803dc17cf26f.jpg)
