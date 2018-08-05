@@ -13,8 +13,6 @@ backgrounds:
 - https://user-images.githubusercontent.com/13930968/43362382-d792f4f6-92a5-11e8-8aa1-aab1b42c5537.jpg
 ---
 
-# Guatemala: The First Half
-
 #### By Audrey 
 
 ### Arrival
