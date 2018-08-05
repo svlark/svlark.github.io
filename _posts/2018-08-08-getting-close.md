@@ -22,7 +22,7 @@ Here are some pictures of the cabin at Tijax.  It even comes with a parking spot
 
 ![on the inside looking out](https://user-images.githubusercontent.com/13930968/43690001-53fd5f84-98c0-11e8-9986-ae3f0e08859e.jpeg)
 
-I ordered Guatemalan breakfast this morning and did not regret it.  This is Chapin.  This meal was Q25 or about $3.33.
+I ordered Guatemalan breakfast this morning and did not regret it.  This is the chapin, a very common dish on menus around here.  This meal was Q25 or about $3.33.
 ![chapin pristine](https://user-images.githubusercontent.com/13930968/43690008-6e5f8348-98c0-11e8-8b1f-348d19ea1295.jpeg)
 It comes with tortillas, eggs, bean, platanos, cream, and cheese.  And by the way, the cream and the cheese, if you taste them individually, seem to have gone off slightly, but all together it's delicious.
 ![chapin tortilla](https://user-images.githubusercontent.com/13930968/43690009-6e776030-98c0-11e8-86e8-09d03c46b2a7.jpeg)
