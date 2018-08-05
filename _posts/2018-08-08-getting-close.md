@@ -4,7 +4,7 @@ title: Getting close
 date: 2018-08-05
 author: Jacob
 tags: Tijax
-thumbnail: https://user-images.githubusercontent.com/13930968/43690001-53fd5f84-98c0-11e8-9986-ae3f0e08859e.jpeg
+thumb: https://user-images.githubusercontent.com/13930968/43690001-53fd5f84-98c0-11e8-9986-ae3f0e08859e.jpeg
 backgrounds:
 - https://user-images.githubusercontent.com/13930968/43690007-6e42b768-98c0-11e8-8dce-b720578f6794.jpeg
 ---
