@@ -19,6 +19,13 @@ Soon we were busy pouring lemonade. I handed a glass of lemonade to a lady in a 
 She pressed a five dollar bill into my hand and said “Here. I’ll donate the other four because you are such sweet girls doing such good 
 things.”  “Thank you so much!” I said, and handed her a cup of lemonade. It made me feel so good inside. It made me realize you get 
 happiness in return for what you give away.
+![selling lemonade](https://user-images.githubusercontent.com/13930968/57200642-5e395200-6f5c-11e9-9207-96e605ba753d.JPG)
+
+us selling lemonade
+
+![making lemonade](https://user-images.githubusercontent.com/13930968/57200682-a5274780-6f5c-11e9-91d7-229b68f74cc1.JPG)
+
+us making lemonade
 
 
 Turtle Hospital
@@ -35,6 +42,32 @@ which means they can’t dive, and it also gives them a false feeling of being f
 pollution in the water, damaging turtles’ immune systems. The turtles that have these tumors often can’t swim or see because the tumors 
 affect their eyes and fins. The criteria for releasing a turtle are that they have to have one good eye, they need three good fins, 
 and to be able to dive.
+
+![Three Flippered Green Turtle](https://user-images.githubusercontent.com/13930968/57200563-aad05d80-6f5b-11e9-8f4c-7c1b61990ccb.JPG)
+
+Junior -- the turtle with an amputated fin
+
+![face of 3 flippered](https://user-images.githubusercontent.com/13930968/57200587-d7847500-6f5b-11e9-9697-c90ff7c0eb44.JPG)
+
+Junior again
+
+![Bubblebutt](https://user-images.githubusercontent.com/13930968/57200597-fc78e800-6f5b-11e9-868a-0bcfaec6aa3a.JPG)
+
+Bubble Butt the turtle for whom Bubble Butt syndrome is named
+
+![after tumor removal](https://user-images.githubusercontent.com/13930968/57200606-216d5b00-6f5c-11e9-8923-480d3fc39175.JPG)
+
+after tumor removal 
+
+![looking at the tanks with Lorelei](https://user-images.githubusercontent.com/13930968/57200620-3518c180-6f5c-11e9-8e88-576b47d378c3.JPG)
+
+looking at the turtles with Lorelei 
+
+![Green Turtle](https://user-images.githubusercontent.com/13930968/57200633-49f55500-6f5c-11e9-9255-6de839789c1d.JPG)
+
+a green sea turtle
+
+
 
 What You Can Do
 ---------------
