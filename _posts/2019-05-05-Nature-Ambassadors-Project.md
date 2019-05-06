@@ -67,7 +67,9 @@ looking at the turtles with Lorelei
 
 a green sea turtle
 
-
+![before tumor removal](https://user-images.githubusercontent.com/13930968/57200685-b83a1780-6f5c-11e9-8dcb-b356460a5ab2.JPG)
+ 
+a turtle before tumor removal
 
 What You Can Do
 ---------------
