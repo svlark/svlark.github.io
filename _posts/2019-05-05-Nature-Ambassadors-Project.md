@@ -6,9 +6,7 @@ author: Audrey Lenore Champness
 tags:
 thumb: https://user-images.githubusercontent.com/13930968/57201120-43111700-6f49-11e9-9e76-42866dc02ef7.png
 backgrounds:
-- 
-- 
-- 
+- https://user-images.githubusercontent.com/13930968/57200587-d7847500-6f5b-11e9-9697-c90ff7c0eb44.JPG
 
 ---
 Turtles-- those cute, sweet, little things!  Who can imagine a world without them? Unfortunately, due to many different causes
