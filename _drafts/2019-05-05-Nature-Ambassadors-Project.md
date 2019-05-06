@@ -4,11 +4,8 @@ title: Nature Ambassador Project
 date: 2019-05-05
 author: Audrey Lenore Champness
 tags:
-thumb: 
+thumb: https://user-images.githubusercontent.com/13930968/57201120-43111700-6f49-11e9-9e76-42866dc02ef7.png
 backgrounds:
-- https://lh3.googleusercontent.com/-j5_OOrm85tk/Vf9WMpVcOfI/AAAAAAAAFyA/VlIVS7een0w/s640/blogger-image--2033543811.jpg
-- https://lh3.googleusercontent.com/-GIecc3ERmS4/Vf9W0oJOBWI/AAAAAAAAFyw/QoXENJnAhVo/s640/blogger-image-1176498696.jpg
-- https://lh3.googleusercontent.com/-jSA9RDYSc1M/Vf9ZSly9J_I/AAAAAAAAFy8/RQLlZdyXDV0/s640/blogger-image-917237636.jpg
 ---
 Turtles-- those cute, sweet, little things!  Who can imagine a world without them? Unfortunately, due to many different causes
 that world may become a reality unless we do something about it. You can make a difference, all you have to do is try.
