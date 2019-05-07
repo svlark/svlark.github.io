@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Guatemala -- The First Half
+title: Guatemala -- The First Half by Audrey
 date: 2018-07-28
 author: Audrey
 tags: Audrey, boat kids, Tijax, Livingston, Rio Dulce, Guatemala
