@@ -1,8 +1,8 @@
 ---
 layout: post
-title: Nature Ambassador Project
+title: Nature Ambassador Project by Audrey
 date: 2019-05-05
-author: Audrey Lenore Champness
+author: Audrey
 tags:
 thumb: https://user-images.githubusercontent.com/13930968/57201120-43111700-6f49-11e9-9e76-42866dc02ef7.png
 backgrounds:
@@ -17,7 +17,7 @@ Lemonade
 Me, mom, and Lorelei hauled our stuff over to  the office, where some of our first customers were already waiting. 
 Soon we were busy pouring lemonade. I handed a glass of lemonade to a lady in a pink shirt and then turned to the next person.
 She pressed a five dollar bill into my hand and said “Here. I’ll donate the other four because you are such sweet girls doing such good 
-things.”  “Thank you so much!” I said, and handed her a cup of lemonade. It made me feel really good inside, and realize you get 
+things.”  “Thank you soAudrey Lenore Champness much!” I said, and handed her a cup of lemonade. It made me feel really good inside, and realize you get 
 happiness in return for what you give away.
 ![selling lemonade](https://user-images.githubusercontent.com/13930968/57200642-5e395200-6f5c-11e9-9207-96e605ba753d.JPG)
 
