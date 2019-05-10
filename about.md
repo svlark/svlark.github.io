@@ -5,9 +5,8 @@ permalink: /about-us/
 backgrounds:
 - http://lh3.googleusercontent.com/-mKEx2RvLUSk/VWEvpMC8yxI/AAAAAAAAecE/zu07raO2VIg/s640/blogger-image-323423667.jpg
 ---
-This is us. We are in Chicago for now.  Long story.  
 
-We bought the first Lark, an Ericson 36C in Ft. Pierce.  We spent 2 years aboard her doing boat-work, and cruising the east coast of Florida, the Keys, and the northern Bahamas.  The girls got a little big for the Ericson and we really wanted to have the space to host family and friends staying aboard, so we bought the second Lark, our precious Amel Maramu, in St. Martin in April of 2017.  Hurricane Irma was not kind to Lark, though she was not as unkind as she was to most other boats in St. Martin.  We evacuated from St. Martin to Grampsy's house in Chicago, where we are trying to figure out our next steps.  
+Here's our tracker: https://forecast.predictwind.com/tracking/display/LarkOrion.
 
 Our adventures have taken us from Deadhorse to Moose Factory, from Caniapiscau to Kodiak, from James Bay to the Yucatan, and from Whitehorse to Spanish Wells, to Sint Maarten. Now we aspire to sail slowly around the world with our little family.
 
