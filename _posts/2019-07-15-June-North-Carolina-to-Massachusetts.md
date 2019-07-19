@@ -4,9 +4,9 @@ title: June: North Carolina to Massachusetts
 date: 2019-07-15
 author: April
 tags: sailing, new england, homeschool
-thumb: https://user-images.githubusercontent.com/13930968/61134386-7f06b200-a48d-11e9-89aa-9100e4d78eb9.jpeg
+thumb: https://user-images.githubusercontent.com/13930968/61134083-d7897f80-a48c-11e9-848d-49998173d945.jpeg
 backgrounds:
-- https://user-images.githubusercontent.com/13930968/61134083-d7897f80-a48c-11e9-848d-49998173d945.jpeg
+- https://user-images.githubusercontent.com/13930968/61134386-7f06b200-a48d-11e9-89aa-9100e4d78eb9.jpeg
 - https://user-images.githubusercontent.com/13930968/61134085-d7897f80-a48c-11e9-80f1-731293fdf828.jpeg
 - https://user-images.githubusercontent.com/13930968/61134371-7d3cee80-a48d-11e9-9466-1864e73b54c6.jpeg
 
