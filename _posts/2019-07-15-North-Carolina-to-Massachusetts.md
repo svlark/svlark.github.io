@@ -4,9 +4,9 @@ title: North Carolina to Massachusetts
 date: 2019-07-15
 author: April
 tags: sailing, new england, homeschool
-thumb: https://user-images.githubusercontent.com/13930968/61134387-7f06b200-a48d-11e9-99d0-d2203021da10.jpeg
+thumb: https://user-images.githubusercontent.com/13930968/61134083-d7897f80-a48c-11e9-848d-49998173d945.jpeg
 backgrounds:
-- https://user-images.githubusercontent.com/13930968/61134083-d7897f80-a48c-11e9-848d-49998173d945.jpeg
+- https://user-images.githubusercontent.com/13930968/61134387-7f06b200-a48d-11e9-99d0-d2203021da10.jpeg
 - https://user-images.githubusercontent.com/13930968/61134386-7f06b200-a48d-11e9-89aa-9100e4d78eb9.jpeg
 - https://user-images.githubusercontent.com/13930968/61134085-d7897f80-a48c-11e9-80f1-731293fdf828.jpeg
 - https://user-images.githubusercontent.com/13930968/61134371-7d3cee80-a48d-11e9-9466-1864e73b54c6.jpeg
@@ -34,10 +34,6 @@ Saw this beauty on a hike.
 
 ![dragonfly nature journal](https://user-images.githubusercontent.com/13930968/61134088-d8221600-a48c-11e9-8e5b-6297ec04250b.jpeg)
 Lorelei's Nature Journal of our dragonfly friend. 
-
-![playing at the beach](https://user-images.githubusercontent.com/13930968/61134085-d7897f80-a48c-11e9-80f1-731293fdf828.jpeg)
-
-![playing at the beach2](https://user-images.githubusercontent.com/13930968/61134086-d8221600-a48c-11e9-94c5-276ca620ebcb.jpeg)
 
 ![playing at the beach3](https://user-images.githubusercontent.com/13930968/61134087-d8221600-a48c-11e9-94b5-4a8bc34cd4b0.jpeg)
 Splashing at the beach in Nags Head. 
@@ -81,9 +77,6 @@ Beautiful Cuttyhunk. Our first stop in Massachusetts really set the bar high!
 
 ![Beach hike](https://user-images.githubusercontent.com/13930968/61134375-7dd58500-a48d-11e9-8818-ce614326d353.jpeg)
 Beach hike in Cuttyhunk. 
-
-![Surprise visit from Grampsy](https://user-images.githubusercontent.com/13930968/61134378-7dd58500-a48d-11e9-983a-6bf9545c7cbe.jpeg)
-Grampsy flew in for a surprise visit! 
 
 ![playing ukulele with Grampsy in the cockpit](https://user-images.githubusercontent.com/13930968/61134379-7dd58500-a48d-11e9-8ea0-713a750a2f21.jpeg)
 
