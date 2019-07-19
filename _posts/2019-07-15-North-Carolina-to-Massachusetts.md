@@ -1,6 +1,6 @@
 ---
 layout: post
-title: June: North Carolina to Massachusetts 
+title: North Carolina to Massachusetts
 date: 2019-07-15
 author: April
 tags: sailing, new england, homeschool
