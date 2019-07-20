@@ -1,13 +1,12 @@
 ---
 layout: post
-title: North Carolina to Massachusetts
+title: June - North Carolina to Massachusetts
 date: 2019-07-15
 author: April
 tags: sailing, new england, homeschool
 thumb: https://user-images.githubusercontent.com/13930968/61134386-7f06b200-a48d-11e9-89aa-9100e4d78eb9.jpeg
 backgrounds:
 - https://user-images.githubusercontent.com/13930968/61134387-7f06b200-a48d-11e9-99d0-d2203021da10.jpeg
-- https://user-images.githubusercontent.com/13930968/61134386-7f06b200-a48d-11e9-89aa-9100e4d78eb9.jpeg
 - https://user-images.githubusercontent.com/13930968/61134085-d7897f80-a48c-11e9-80f1-731293fdf828.jpeg
 - https://user-images.githubusercontent.com/13930968/61134371-7d3cee80-a48d-11e9-9466-1864e73b54c6.jpeg
 ---
@@ -18,7 +17,7 @@ June 2019-
 We have been in North Carolina for weeks now, and realized that there is so much history just up the coast! The girls and I decided to do an educational field trip from Beaufort to Roanoke and Kitty Hawk. 
 
 ![dance circle](https://user-images.githubusercontent.com/13930968/61134080-d7897f80-a48c-11e9-8d4c-7c4adc8f3f3b.jpeg)
-Exploring Festival Park, a living history site with a native American village along with an early colonial settlement. 
+Exploring Festival Park, a living history site with a Native American village along with an early colonial settlement. 
 
 ![roanoke reenacting](https://user-images.githubusercontent.com/13930968/61134081-d7897f80-a48c-11e9-9d75-0cd5e5a9494e.jpeg)
 
@@ -53,7 +52,7 @@ Ship-building museum
 ![reading with Papa](https://user-images.githubusercontent.com/13930968/61134365-7c0bc180-a48d-11e9-8b58-efecd19e2f77.jpeg)
 
 ![Shackleford Banks](https://user-images.githubusercontent.com/13930968/61134366-7ca45800-a48d-11e9-8b8f-b1d805ab9e01.jpeg)
-Wild Colonial Horses on the Shackleford Banks. The horses have been wild here since the Spanish ship went down here in the 1500s and they made it ashore. 
+Wild colonial horses on the Shackleford Banks. The horses have been wild here since the Spanish ship went down here in the 1500s and they made it ashore. 
 
 ![GM & P in Beaufort](https://user-images.githubusercontent.com/13930968/61134367-7ca45800-a48d-11e9-801d-b626d25516a3.jpeg)
 
@@ -78,6 +77,8 @@ Beautiful Cuttyhunk. Our first stop in Massachusetts really set the bar high!
 Beach hike in Cuttyhunk
 
 ![playing ukulele with Grampsy in the cockpit](https://user-images.githubusercontent.com/13930968/61134379-7dd58500-a48d-11e9-8ea0-713a750a2f21.jpeg)
+We had a surprise visit from Grampsy! 
+
 
 ![Grampsy out for a sail](https://user-images.githubusercontent.com/13930968/61134380-7e6e1b80-a48d-11e9-984b-4ffe59f59317.jpeg)
 We finally got to take my dad out for a sail on our new boat! 
