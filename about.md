@@ -6,7 +6,7 @@ backgrounds:
 - http://lh3.googleusercontent.com/-mKEx2RvLUSk/VWEvpMC8yxI/AAAAAAAAecE/zu07raO2VIg/s640/blogger-image-323423667.jpg
 ---
 
-Hi.  This is us!  Our adventures  have taken us from Deadhorse to Moose Factory, from Caniapiscau to Kodiak, from James Bay to the Puerto Viejo, and from Whitehorse to Spanish Wells, from Fernie to Rio Dulce, from Juneau to Sint Maarten.  Here's our tracker: https://forecast.predictwind.com/tracking/display/LarkOrion.
+Hi.  This is us!  Our adventures  have taken us from Deadhorse to Moose Factory, from Caniapiscau to Kodiak, from James Bay to the Puerto Viejo, and from Whitehorse to Spanish Wells, from Fernie to Rio Dulce, from Juneau to Sint Maarten.  Here's our tracker: [https://forecast.predictwind.com/tracking/display/LarkOrion](https://forecast.predictwind.com/tracking/display/LarkOrion).
 
 Jacob grew up sailing with his family in Florida. He is a software engineer and amateur homeschool teacher. April had never sailed herself until we bought Lark. She is a professional mom and homeschool teacher, and a part-time psychotherapist. Our kids are Audrey and Lorelei. Audrey loves swimming, skiing, reading, and any type of crafting.  Lorelei loves animals, swimming and painting.  
 
