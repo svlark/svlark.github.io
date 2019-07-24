@@ -14,7 +14,7 @@ backgrounds:
 I have been terrible at keeping our blog up to date. I just looked to see where I had left off, and realized it had been a year! I was trying to get Audrey to take over, but right now, she has other priorities. One thing that I am good at updating is my instagram feed though (https://www.instagram.com/april.sailinglark/), so I’m going to attempt to use it to inspire the blog. If you follow me on Instagram, this may seem a little bit like a repeat. 
 
 June 2019-
-We have been in North Carolina for weeks now, and realized that there is so much history just up the coast! The girls and I decided to do an educational field trip from Beaufort to Roanoke and Kitty Hawk. 
+We have been in North Carolina for a couple weeks now, and realized that there is so much history just up the coast! The girls and I decided to do an educational field trip from Beaufort to Roanoke and Kitty Hawk. 
 
 ![dance circle](https://user-images.githubusercontent.com/13930968/61134080-d7897f80-a48c-11e9-8d4c-7c4adc8f3f3b.jpeg)
 Exploring Festival Park, a living history site with a Native American village along with an early colonial settlement. 
