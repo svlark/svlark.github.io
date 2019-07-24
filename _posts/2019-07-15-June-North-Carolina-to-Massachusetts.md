@@ -11,8 +11,6 @@ backgrounds:
 - https://user-images.githubusercontent.com/13930968/61134371-7d3cee80-a48d-11e9-9466-1864e73b54c6.jpeg
 ---
 
-I have been terrible at keeping our blog up to date. I just looked to see where I had left off, and realized it had been a year! I was trying to get Audrey to take over, but right now, she has other priorities. One thing that I am good at updating is my instagram feed though (https://www.instagram.com/april.sailinglark/), so I’m going to attempt to use it to inspire the blog. If you follow me on Instagram, this may seem a little bit like a repeat. 
-
 June 2019-
 We have been in North Carolina for a couple weeks now, and realized that there is so much history just up the coast! The girls and I decided to do an educational field trip from Beaufort to Roanoke and Kitty Hawk. 
 
