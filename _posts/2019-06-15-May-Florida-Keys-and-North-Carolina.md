@@ -41,10 +41,10 @@ We are starting to get the hang of this passage making stuff….5 days up to Bea
 We were waved off the dock in Marathon by this beautiful Eagle Ray. 
 
 ![Audrey making breakfast at sea](https://user-images.githubusercontent.com/13930968/61882511-af574300-aec6-11e9-8218-0d69af26d393.jpeg)
-Audrey has been really been a helpful member of the crew lately. She has taken over about half of the meal prep on passage. 
+Audrey has really been a helpful member of the crew lately. She has taken over about half of the meal prep on passage. 
 
 ![girls excited to spot land](https://user-images.githubusercontent.com/13930968/61882512-af574300-aec6-11e9-982c-3163ebebfa57.jpeg)
-The girls were pretty excited to spot land after 5 days at sea. 
+The girls were excited to spot land after 5 days at sea. 
 
 Beaufort is such a cute town, with lots to do! I think we’ll stay awhile. 
 
@@ -67,6 +67,7 @@ These kids love getting muddy together!
 Aiden's got real skill at catching crabs! 
 
 ![Traveling Lark](https://user-images.githubusercontent.com/13930968/61882524-b1210680-aec6-11e9-9b64-ab4a536fee5b.jpeg)
+The whole gang. 
 
 ![decorating Jacob](https://user-images.githubusercontent.com/13930968/61882522-b0887000-aec6-11e9-84f3-46753a5d1383.jpeg)
 Decorating Jacob
