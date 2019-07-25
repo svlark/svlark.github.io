@@ -14,7 +14,7 @@ backgrounds:
 
 May, 2019 - Florida Keys - North Carolina
 
-We has a list of long-overdue boat stuff to take care when we arrived back in the US.  A big one was that the life raft that came with the boat was far overdue for service, and when they inflated it, it fell apart. We spent the big bucks to replace the eight-person offshore life raft... that I hope to never see the inside of. 
+We had a list of long-overdue boat stuff to take care when we arrived back in the US.  A big one was that the life raft that came with the boat was far overdue for service, and when they inflated it, it fell apart. We spent the big bucks to replace the eight-person offshore life raft... that I hope to never see the inside of. 
 
 ![Loey with the life raft](https://user-images.githubusercontent.com/13930968/61883556-ac5d5200-aec8-11e9-9fc1-b0df6981e72c.jpeg)
 Lorelei helped me pick up the new raft in Ft. Lauderdale. This one is identicle to our new one, only smaller. 
