@@ -52,7 +52,7 @@ Beaufort is such a cute town, with lots to do! I think we’ll stay awhile.
 Strolling the Saturday Farmer's Market. 
 
 ![Mother's Day family photo](https://user-images.githubusercontent.com/13930968/61882516-afefd980-aec6-11e9-8247-b354a265b797.jpeg)
-My anual required family photo. I do it every year on Mother's Day so everyone feels like they have to smile. 
+My anual required family photo. I do it every year on Mother's Day so everyone feels like they have to smile. We even managed to get Lark into this one! 
 
 ![Making new friends with the kids from Diablo](https://user-images.githubusercontent.com/13930968/61882517-afefd980-aec6-11e9-8699-5a367bd649e2.jpeg)
 We met some fun new friends in Beafort from SV Diablo! 
