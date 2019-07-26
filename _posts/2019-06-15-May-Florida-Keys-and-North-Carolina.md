@@ -27,7 +27,7 @@ After visiting the turtle hospital, the girls decided to raise some money for th
 ![Mr. T release](https://user-images.githubusercontent.com/13930968/61883565-ae271580-aec8-11e9-98ee-b554f6f187b9.jpeg)
 Watching the release Mr. T, the loggerhead, back into the wild after his recuperation at the Turtle Hospital. Track his current location [here](https://www.turtlehospital.org/uncategorized/track-mr-t-an-adult-male-loggerhead-sea-turtle-online).
 
-I mostly post pictures of the exciting stuff, but here some of our daily grind hanging at the pool and getting our school work done. 
+I mostly post pictures of the exciting stuff, but here, some of our daily grind is just hanging out at the pool and getting our school work done. 
 
 ![hot stone massage at the pool](https://user-images.githubusercontent.com/13930968/61883558-acf5e880-aec8-11e9-8ed5-7db29f5918b9.jpeg)
 Hot stone mermaid massages at the pool. 
