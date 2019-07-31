@@ -8,7 +8,6 @@ thumb: https://user-images.githubusercontent.com/13930968/61134386-7f06b200-a48d
 backgrounds:
 - https://user-images.githubusercontent.com/13930968/61134085-d7897f80-a48c-11e9-80f1-731293fdf828.jpeg
 - https://user-images.githubusercontent.com/13930968/61134371-7d3cee80-a48d-11e9-9466-1864e73b54c6.jpeg
-- https://user-images.githubusercontent.com/13930968/61134387-7f06b200-a48d-11e9-99d0-d2203021da10.jpeg
 ---
 
 June 2019-
