@@ -80,7 +80,7 @@ We decided to spend our birthdays (Jacob and mine) in Chicago with my dad. It ju
 ![bunny ears with Grampsy](https://user-images.githubusercontent.com/13930968/61963014-d0886400-af98-11e9-8004-ca561897dd97.jpeg)
 
 ![Making beets with Grampsy](https://user-images.githubusercontent.com/13930968/61961396-5f937d00-af95-11e9-9885-9f6012bca97e.jpeg)
-Making one of our traditional Easter dishes. 
+Making one of our traditional Easter dishes. She needed saftey glasses to protect against the horseradish fumes. 
 
 ![Lorelei setting up for the Easter egg hunt](https://user-images.githubusercontent.com/13930968/61963016-d120fa80-af98-11e9-8d1e-c680c8f452df.jpeg)
 Getting ready to host an Easter Egg hunt. 
