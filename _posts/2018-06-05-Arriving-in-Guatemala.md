@@ -1,7 +1,7 @@
 ---
 layout: post
 title: Arriving in Guatemala
-date: 2018-07-12
+date: 2018-06-05
 author: Jacob
 tags: Guatemala, Rio Dulce, Raul, Livingston, Cabo Tres Puntas, 
 thumb: https://user-images.githubusercontent.com/13930968/42668586-b426ba14-860e-11e8-9ded-562008cf6166.png
@@ -15,7 +15,7 @@ We had a perfect sail down from Isla Mujeres with breeze from the ESE blowing co
 
 We'd been warned that 3 days of beam seas would be trying, and there certainly were times when it seemed that the simplest task was not worth the trouble of standing up to accomplish, but it was really pretty fun.
 
-That said, when we pulled into the lee of Cabo Tres Puntas on the evening of the third day and got the anchor down, the calm was a welcome relief. I set the anchor alarm and slept like a log.  Coming on deck the next morning, I found that we were sitting on a mirror and encased in a dense fog.  It was a thrill to hear the howler monkeys ashore through the mist.
+That said, when we pulled into the lee of Cabo Tres Puntas on the evening of the third day and got the anchor down, the calm was a welcome reli2018-07-12ef. I set the anchor alarm and slept like a log.  Coming on deck the next morning, I found that we were sitting on a mirror and encased in a dense fog.  It was a thrill to hear the howler monkeys ashore through the mist.
 
 ![quarantine flag flying](https://user-images.githubusercontent.com/13930968/42668586-b426ba14-860e-11e8-9ded-562008cf6166.png)
 
