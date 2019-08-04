@@ -1,6 +1,6 @@
 ---
 layout: post
-title: April - Florida Keys, Arizona, Chichago, Florida Keys
+title: April - Florida Keys, Arizona, Chicago, Florida Keys
 date: 2019-05-15
 author: April
 tags: Easter, Arizona, visiting 
