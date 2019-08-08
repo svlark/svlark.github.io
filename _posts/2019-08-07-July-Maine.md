@@ -93,7 +93,7 @@ Dani, Jim, Zack, Audrey and Lorelei living it up in the mountains of Colorado
 
 While the girls were away, Jacob and I acted like it was our second honeymoon. 
 
-![Jacob with blueberries](https://user-images.githubusercontent.com/13930968/62433129-28de0500-b701-11e9-8242-33a72b142de4.jpeg)
+![Jacob with blueberries](https://user-images.githubusercontent.com/13930968/62667177-84540100-b954-11e9-84e4-f39999c487cb.jpeg)
 Picking wild blueberries on Swans Island. 
 ![Wild blueberries](https://user-images.githubusercontent.com/13930968/62433127-267bab00-b701-11e9-9d82-165f9b1169b9.jpeg)
 
@@ -123,13 +123,13 @@ My Dad brought the girls home to us, and we showed him around Mt. Desert Island 
 ![Audrey and Gramps in the launch](https://user-images.githubusercontent.com/13930968/62433159-4dd27800-b701-11e9-8e8d-82156a16dba5.jpeg)
 Riding the launch in Northeast Harbor. A service that comes with renting a float...along with showers, and laundry. 
 
-![Lark on the float](https://user-images.githubusercontent.com/13930968/62433162-5165ff00-b701-11e9-8764-9e90b4efe009.jpeg)
+![Lark on the float](https://user-images.githubusercontent.com/13930968/62667451-adc15c80-b955-11e9-8100-afd21f7a3c8b.jpeg)
 Lark on her float. Now we can describe lark as the one with the blue sail covers and the ENORMOUS orange kayak. It was like Christmas in July. 
 
-![playing mini golf](https://user-images.githubusercontent.com/13930968/62433165-55921c80-b701-11e9-9f5a-14b4c10cdca8.jpeg)
+![playing mini golf](https://user-images.githubusercontent.com/13930968/62667179-84ec9780-b954-11e9-8cae-d01733ae2f78.jpeg)
 Playing mini golf
 
-![Lorelei making blueberry pancakes](https://user-images.githubusercontent.com/13930968/62433171-59be3a00-b701-11e9-897c-745271997846.jpeg)
+![Lorelei making blueberry pancakes](https://user-images.githubusercontent.com/13930968/62667180-84ec9780-b954-11e9-8732-3b903037177f.jpeg)
 Lorelei making us some homemade wild blueberry pancakes
 
 ![Audrey and Lorelei in Echo lake with Gramps](https://user-images.githubusercontent.com/13930968/62433177-5d51c100-b701-11e9-82df-8b8bd406e9da.jpeg)
