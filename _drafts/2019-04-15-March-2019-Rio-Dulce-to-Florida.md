@@ -115,11 +115,11 @@ Ukulele jam
 ![Golfcart with Bumfuzzle and Rothim](https://user-images.githubusercontent.com/13930968/62840584-3e0fe200-bc73-11e9-901a-33e5280f0cb9.jpeg)
 Ali's golfcart was a fun way to get around! 
 
-![Audrey doing the cruiser's net](https://user-images.githubusercontent.com/13930968/62840806-5a614e00-bc76-11e9-9a5d-db938bb75011.jpeg)
+![Audrey on cruiser's net](https://user-images.githubusercontent.com/13930968/63067789-01e4b780-bee7-11e9-906a-5887007c5be4.jpeg)
 When we were in Isla Mujeres last spring, Audrey was a regular on the local cruiser's Net, so it was really fun when she was asked back for a guest appearance. Thanks Aeon!  
 
 ![Ali taking pic from the dock](https://user-images.githubusercontent.com/13930968/62840809-5af9e480-bc76-11e9-9102-842e4a6797a8.jpeg)
 Saying goodbye to our new friends. The lengths moms go to for a good shot! 
 
-![Chilly passage to Florida](https://user-images.githubusercontent.com/13930968/62840812-5b927b00-bc76-11e9-8b98-7bd0acbfca29.jpeg)
+![me cold](https://user-images.githubusercontent.com/13930968/63067790-01e4b780-bee7-11e9-8bbb-e2e87c86b5ad.jpeg)
 Another 3 days and we are back in Florida! Florida was a little chillier then I’m used to. We haven’t had to put on coats in a long time! 
