@@ -1,11 +1,17 @@
 ---
 layout: post
-title: GM and Papa in Beaufory
-date: 2019-05-16
+title: GranMiri and Papa's Visit to Beaufort
+date: 2019-07-16
 author: Audrey and GranMiri
 tags:  
-thumb: 
+thumb: https://user-images.githubusercontent.com/13930968/64362510-a042d500-cfdc-11e9-9285-f8164f90b17d.jpeg
 backgrounds:
+- https://user-images.githubusercontent.com/13930968/64362491-9f11a800-cfdc-11e9-800a-251791a03600.jpeg
+- https://user-images.githubusercontent.com/13930968/64362495-9f11a800-cfdc-11e9-81dd-c9cea5c38de8.jpeg
+- https://user-images.githubusercontent.com/13930968/64362499-9faa3e80-cfdc-11e9-92c2-715b2732ae0d.jpeg
+- https://user-images.githubusercontent.com/13930968/64362500-9faa3e80-cfdc-11e9-95de-7f0758f2ceff.jpeg
+- https://user-images.githubusercontent.com/13930968/64362747-11828800-cfdd-11e9-8c1f-c95dc604ad59.jpeg
+- https://user-images.githubusercontent.com/13930968/64362750-12b3b500-cfdd-11e9-9eab-160a9658216e.jpeg
 ---
 
 GranMiri: Beaufort, North Carolina is an eight-hour drive from our
@@ -16,12 +22,14 @@ out to be a good choice, all pine trees and sand and friendly folks
 (and dogs--Daisy liked it too!)
 I decided to dialogue with Audrey about the rest of our trip, so we
 could get a more dimensional picture of our visit. What do you
-remember best, Aud?
+remember best, Audrey?
 
 Audrey: Well, we were pretty excited that you were going to stay
 aboard with us, because this was the first time we would have
 overnight company on the Lark--there was a lot of arranging and
 re-arranging and planning. That was fun!
+
+![Lo and Daisy on the couch](https://user-images.githubusercontent.com/13930968/64362493-9f11a800-cfdc-11e9-8ac8-e660d318c3d2.jpeg)
 
 GranMiri: And we felt like royalty on the Lark! We had the captain's
 cabin with its own head and lockers, and you made breakfast and supper
@@ -47,6 +55,9 @@ finally started to really rain, just as we reached the marina!
 GranMiri: Indeed it did ; ) It rained on and off all weekend, but the
 sun came through for us at just the right times for our
 adventures--that was a blessing!
+
+![Lo and Papa walking Daisy](https://user-images.githubusercontent.com/13930968/64362497-9faa3e80-cfdc-11e9-8153-132ab3fa4af6.jpeg)
+Lorelei and Papa walking on Daisy in the rain. 
 
 Audrey: So Saturday morning, we went to the Farmer's Market at the Courthouse...
 
@@ -112,6 +123,9 @@ GM: You showed us your big old climbing tree in the plaza near the
 middle of the boardwalk. After lunch, I think we went back to the
 Lark, because it was raining again.
 
+![up a tree group shot](https://user-images.githubusercontent.com/13930968/64362496-9f11a800-cfdc-11e9-9fb8-393277031d36.jpeg)
+Group photo in front of the girl's favorite tree. 
+
 AC: But it cleared up in time to go to the Maritime Museum on Front
 Street later that afternoon!
 
@@ -120,6 +134,9 @@ the boatbuilding loft--I looked it up--it is part of the Maritime
 Museum, and it's called the Watercraft Center. It's several storeys
 tall, and we went up the stairs to a catwalk above the working area to
 watch people building and repairing wooden boats.
+
+![Lo and Papa and shipbuilding museum](https://user-images.githubusercontent.com/13930968/64362746-11828800-cfdd-11e9-819b-df1383f0af89.jpeg)
+Lorelei and Papa at the shipbuilding museum. 
 
 AC: Then we went across the street to the museum building, which had a
 lot of displays and a maritime library.
@@ -147,6 +164,9 @@ GM: And you were sitting on a stair, sampling books about birds and
 wildlife while the grown-ups checked out the comfort quotient of the
 nice old armchairs and overstuffed sofa ; ) It reminded me of a scene
 out of one of those movies set at Cambridge or Oxford.
+
+![Lo and GM dancing at museum](https://user-images.githubusercontent.com/13930968/64362748-11828800-cfdd-11e9-9401-fd36ef087c5a.jpeg)
+Lorelei and GranMiri at dancing at the museum in the library. 
 
 AC: Yeah, it was very cool. I made a poster about out Maritime Museum
 visit for a boatschool project the following week: an illustrated
@@ -180,6 +200,7 @@ GM: So, when we returned from church, we all walked downtown and had
 lunch at one of the waterfront restaurants on the boardwalk, then
 walked over to wait for our ferry to Shackleford Island.
 
+
 ALC: That's when you met those Scottish people with their whippet, wasn't it?
 
 MHC: Right, so we exchanged whippet stories with them for a while.
@@ -188,22 +209,39 @@ They agreed that Daisy must be at least half whippet.
 ALC: Then we took the ferry Shackleford Banks. When we started towards
 the sand dunes...
 
+![Ferry to Shackleford](https://user-images.githubusercontent.com/13930968/64362498-9faa3e80-cfdc-11e9-8885-0cd120a8f5e5.jpeg)
+on our way to Shackleford Island
+
 MHC: We had to cross those big tidal ponds! You guys had your crocs
 on, but Papa and I had to carry our Merrels and socks across ; )
 
+
 ALC: Then we hiked across the dunes to the ocean side. We saw lots of
 wild horses, Mom got some good pictures...
+
+![Shackleford Horses](https://user-images.githubusercontent.com/13930968/64362500-9faa3e80-cfdc-11e9-95de-7f0758f2ceff.jpeg)
 
 MHC: The ocean side was wild and almost deserted. I picked up a lot of
 those delicate "fingernail" clam shells as we hiked north, then Papa
 and I had a rest on an
 
+![Shackleford Beach](https://user-images.githubusercontent.com/13930968/64362504-a042d500-cfdc-11e9-8e42-436717163382.jpeg)
+
 oceanside dune while you guys  walked further up the beach to see the
 lighthouse. When you got back, it was time to hike back over the dunes
 to meet the ferry.
 
+![hiking the dunes](https://user-images.githubusercontent.com/13930968/64362505-a042d500-cfdc-11e9-89ae-d840b6f1ccfa.jpeg)
+
+![Horses on the dunes](https://user-images.githubusercontent.com/13930968/64362506-a042d500-cfdc-11e9-9ed8-9de9ab69d117.jpeg)
+
 ALC: We got back to the land side in plenty of time to play in the
 shallows along the beach with Daisy.
+
+![Girls on the dunes](https://user-images.githubusercontent.com/13930968/64362502-9faa3e80-cfdc-11e9-97de-56f366527f21.jpeg)
+
+![GranMiri and Lo on the beach](https://user-images.githubusercontent.com/13930968/64362507-a042d500-cfdc-11e9-9e48-770e719e574d.jpeg)
+Waiting for the return ferry on the beach. 
 
 MHC: Your mom got some good shots of you and Lo romping in the Sound
 with her ; )
@@ -211,6 +249,9 @@ I remember you asking me if Daisy liked the water. I had to tell you I
 had no idea, because we hadn't tried Daisy in the water yet! But it
 was nice and warm and shallow, so I told you to go ahead and try it.
 It was fun watching you playing in the water with her!
+
+![Walking Daisy on Shackleford](https://user-images.githubusercontent.com/13930968/64362501-9faa3e80-cfdc-11e9-9a76-5ff00166a81a.jpeg)
+
 
 ALC: Then we took the ferry back and had Taco Night on the Lark ; )
 
@@ -260,6 +301,8 @@ ALC: When the driver finally arrived, we all got on the bus. They said
 Daisy could come, so Lo and I took turns holding her on our laps in
 the front seat up on the top deck during the tour.
 
+![group in front of the double decker bus](https://user-images.githubusercontent.com/13930968/64362508-a042d500-cfdc-11e9-8205-c22ab7f558d2.jpeg)
+
 MHC: So once the sun came out, it was another bright sunny breezy
 morning. Beaufort was established in 1709 as a seaport. During the
 1700, the water actually came right up to the
@@ -277,6 +320,8 @@ two hundred years old, were still standing.
 
 ALC: They told us some spooky stories about the Old Burying Ground, too.
 
+![Double Decker bus tour](https://user-images.githubusercontent.com/13930968/64362509-a042d500-cfdc-11e9-8ef5-2cabc06fb315.jpeg)
+
 MHC: The Beaufort NC Historic Site and the NC Maritime Museum at
 Beaufort both have amazing websites, too--so I have been able to go
-back to historic Beaufort and .'visit' online.
+back to historic Beaufort and 'visit' online.
