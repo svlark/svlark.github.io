@@ -42,7 +42,7 @@ running down Lover's Lane
 ![Lorelei with seek and find](https://user-images.githubusercontent.com/13930968/63722395-18610c00-c821-11e9-95d9-441f04ef7226.jpeg)
 
 ![Audrey with cherry cordial](https://user-images.githubusercontent.com/13930968/63722397-18610c00-c821-11e9-941b-3b408568e053.jpeg)
-Cherry Cordial! 
+Raspberry Cordial! 
 
 We drove to the capital of Prince Edward Island, Charlottetown, to see Anne of Green Gables the Musical. I had a great time at the musical it was hilarious, beautiful, and sweet! My favorite actor was the one who played Mrs. Rachel Lynde. The original Mrs. Rachel Lynde was sick so they had to fly another actor in and she had only 45 minutes to learn the play, but she nailed it! They weren’t able to exactly follow the book because of time constraints, but they really did get the theme.
 
