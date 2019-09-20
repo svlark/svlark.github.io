@@ -1,7 +1,7 @@
 ---
 layout: post
 title: Our Anne of Green Gables Road Trip by Audrey
-date: 2019-08-07
+date: 2019-08-30
 author: Audrey
 tags: Anne of Green Gables, PEI, young writer  
 thumb: https://user-images.githubusercontent.com/13930968/63722398-18f9a280-c821-11e9-93a3-6b3c1b1d0ab0.jpeg
