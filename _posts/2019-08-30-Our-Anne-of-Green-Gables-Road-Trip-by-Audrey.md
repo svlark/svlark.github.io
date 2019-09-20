@@ -12,7 +12,7 @@ backgrounds:
 - https://user-images.githubusercontent.com/13930968/63722397-18610c00-c821-11e9-941b-3b408568e053.jpeg
 - https://user-images.githubusercontent.com/13930968/63722401-19923900-c821-11e9-98d6-9c07f41b50a2.jpeg
 ---
-We took a road trip through the Maritime provinces, the highlight being Prince Edward Island, where the book “Anne of Green Gables” is set. “Anne of Green Gables” is a book about an orphan who comes to live on PEI. It is one of my favorite books. I’ve read it multiple times, and I was really looking forward to this trip!
+We took a road trip through the Maritime provinces, the highlight being Prince Edward Island, where the book “Anne of Green Gables” is set. “Anne of Green Gables” is a book about an orphan who comes to live on Prince Edward Island. It is one of my favorite books. I’ve read it multiple times, and I was really looking forward to this trip!
 
 It was only when I was looking at the museum that I realized how autobiographical the book was. The orphan part came from when Lucy Maud Montgomery’s, the author of Anne of Green Gables, mother died when she was very young, and her father was almost never home. Montgomery lived with her grandparents in a house across the street from Green Gables, her cousins house. She showed a talent for writing at a young age, writing very professional-sounding poetry and short stories by the time she was nine. Anne also had a passion for poetry and writing starting at a young age.  
 
