@@ -23,7 +23,7 @@ The whole gang at our new favorite fried chicken patio party, Milk and Honey.
 playing in the woods by the marina with their pal Rev from Twig. 
 
 ![Shakespeare in the park](https://user-images.githubusercontent.com/13930968/63371472-8d809d00-c35a-11e9-8010-4035ff83a311.jpeg)
-Northeast Harbor had lots of fun things to do, including Shakespeare in the Park, A Midsummer Nights Dream. 
+Northeast Harbor had lots of fun things to do, including Shakespeare in the Park -- A Midsummer Night's Dream. 
 
 ![kids watching the show](https://user-images.githubusercontent.com/13930968/63371473-8d809d00-c35a-11e9-825e-72b3296cfdcb.jpeg)
 The kids loved it!
@@ -40,7 +40,7 @@ wearing my puffy coat in August
 Land Ho! 
 
 ![picking blueberries on mistake](https://user-images.githubusercontent.com/13930968/63371481-8eb1ca00-c35a-11e9-8005-08981807c2e3.jpeg)
-We landed on beautiful Mistake Island for a week completely to ourselves. After kayaking to shore we found a gorgous lighthouse, and it was PACKED with blueberries, and raspberries! 
+We landed on beautiful Mistake Island for a week completely to ourselves. After kayaking to shore we found a gorgous lighthouse, on an island PACKED with blueberries, and raspberries! 
 
 ![posing on mistake](https://user-images.githubusercontent.com/13930968/63371483-8f4a6080-c35a-11e9-8831-4334513c4453.jpeg)
 
@@ -49,7 +49,7 @@ We landed on beautiful Mistake Island for a week completely to ourselves. After 
 ![girls kayaking at mistake](https://user-images.githubusercontent.com/13930968/63371492-91142400-c35a-11e9-998f-7a3852115564.jpeg)
 
 ![seal nature journal](https://user-images.githubusercontent.com/13930968/63371494-91acba80-c35a-11e9-9fba-f0907e5c6315.jpeg)
-A week to ourselves off of this beautiful island has inspired lots of journaling, berry picking, and baking
+A week to ourselves in this beautiful harbir has inspired lots of journaling, berry-picking, and baking.
 
 ![blueberry nature journal](https://user-images.githubusercontent.com/13930968/63371495-91acba80-c35a-11e9-86fd-a17b7bd8439e.jpeg)
 
@@ -57,17 +57,17 @@ A week to ourselves off of this beautiful island has inspired lots of journaling
 The blueberries are overflowing! Blueberries on everything! 
 
 ![skipping through the woods](https://user-images.githubusercontent.com/13930968/63371498-92455100-c35a-11e9-88fe-bab6a0762d25.jpeg)
-Our last hike through. 
+Our last hike on Mistake 
 
 ![Lark on the giant ball in Jonesport](https://user-images.githubusercontent.com/13930968/63371502-92455100-c35a-11e9-8dae-7cb73a0006d4.jpeg)
-We were out of supplies so we stopped at Jonesport to stock up. We were too deep for the harbor, so we tied up on the outside of the breakwater on a giant mooring ball intended for boats much bigger then us. Jonesport was a very friendly place. A local even lent us his truck, so we could stock up on groceries! 
+We were out of supplies so we stopped at Jonesport to stock up. We were too deep for the harbor, so we tied up on the outside of the breakwater on a giant mooring ball intended for big tugs and barges. Jonesport was a very friendly place. A local even lent us his truck, so we could stock up on groceries! 
 
 ![hauling the dink up the beach at Roque](https://user-images.githubusercontent.com/13930968/63371503-92455100-c35a-11e9-8645-23b793c3cee0.jpeg)
-We found another private island. This one had the most amazingly beautiful white sand beach! 
+We found another private island. This is Roque Island.  It has the most amazingly beautiful white sand beach! 
 
 ![beach at Roque](https://user-images.githubusercontent.com/13930968/63371504-92dde780-c35a-11e9-986d-e9e0f1666858.jpeg)
 
-![playing in the sand on roque](https://user-images.githubusercontent.com/13930968/65389730-66d1cf80-dd27-11e9-93c3-90d29937be5a.jpeg)
+![playing in the sand on Roque](https://user-images.githubusercontent.com/13930968/65389730-66d1cf80-dd27-11e9-93c3-90d29937be5a.jpeg)
 
 ![Audrey and Jacob on Roque](https://user-images.githubusercontent.com/13930968/65389731-66d1cf80-dd27-11e9-840f-fb17ab922049.jpeg)
 
@@ -89,12 +89,12 @@ SO MANY PUFFINS!
 ![puffin flying](https://user-images.githubusercontent.com/13930968/65389737-676a6600-dd27-11e9-9a07-cbb4e62eee56.jpeg)
 
 ![nature journaling machias](https://user-images.githubusercontent.com/13930968/65389739-676a6600-dd27-11e9-89c1-38448ad9028a.jpeg)
-All the birds inspired some spontaneous nature journaling. 
+All the birds inspired some spontaneous nature-journaling. 
 
 ![Audrey with Swedish rye bread](https://user-images.githubusercontent.com/13930968/65389740-676a6600-dd27-11e9-913b-e290fd14af5b.jpeg)
-After leaving Machias, we had a nice sail up into the Bay of Fundy. Audrey commemerated the occasion by baking us a Swedish Rye bread. 
+After leaving Machias, we had a nice sail up into the Bay of Fundy. Audrey commemorated the occasion by baking us a Swedish Rye bread. 
 
-After our Puffin pit stop, we decided to cross into Canada and brave the Bay of Fundy. The Bay of Fundy have the largest tides in the world! The crazy tides around here can cause really interesting and sometimes scary water phenomena, like boils, whirlpools and extremely strong currents!
+After our puffin pit stop, we decided to cross into Canada and brave the Bay of Fundy. The Bay of Fundy has the largest tides in the world! The crazy tides around here can cause really interesting and sometimes scary water phenomena, like boils, whirlpools and extremely strong currents!
 
 ![rainbow at anchor](https://user-images.githubusercontent.com/13930968/65389741-676a6600-dd27-11e9-8285-ee0ab6f59ee4.jpeg)
 Our first anchorage in Canada. We couldn't go ashore because we weren't allowed to clear in until we arived in St. Andrews. 
@@ -117,10 +117,10 @@ We decided to write some postcards.
 ![mailing postcards](https://user-images.githubusercontent.com/13930968/65389751-6802fc80-dd27-11e9-820a-b132f5aa8bdf.jpeg)
 
 ![blockhouse](https://user-images.githubusercontent.com/13930968/65389750-6802fc80-dd27-11e9-9892-ba77ea705845.jpeg)
-Exploring the block house on St. Andrews. Built during the war of 1812. 
+Exploring the Block House on St. Andrews, built during the war of 1812. 
 
 ![St Andrews farmers market](https://user-images.githubusercontent.com/13930968/65389747-6802fc80-dd27-11e9-803a-418421c23106.jpeg)
-St. Andrews had a really fun Farmer's Market
+St. Andrews had a really fun Farmers' Market.
 
 ![kilted singer St. Andrews farmers market](https://user-images.githubusercontent.com/13930968/65389748-6802fc80-dd27-11e9-807b-9c33e7c45760.jpeg)
 
@@ -132,25 +132,25 @@ full of more blueberries!
 ![blueberry banana bread photo](https://user-images.githubusercontent.com/13930968/65389759-689b9300-dd27-11e9-85dd-247708744fec.jpeg)
 All of the blueberries in our lives have inspired Audrey to start a blueberry cookbook. This is her blueberry banana bread. 
 
-While we were this far North we decided to rent a car and explore the other Maritime provinces. 
+While we were this far north we decided to rent a car and explore the other Maritime provinces. 
 
 ![Anne the musical](https://user-images.githubusercontent.com/13930968/65389752-6802fc80-dd27-11e9-8ab5-00aedf838abf.jpeg)
 The trip was centered around Anne of Green Gables, a family favorite. We were all really excited to see the places we had read so much about. For more photos of the trip check out [Audrey’s blog](http://www.svlark.com/2019/08/Our-Anne-of-Green-Gables-Road-Trip-by-Audrey.html)!
 
-We had heard about some great whale activity east about 1 day sail or 1 hour by jet boat from where we were moored.
+We had heard about some great whale activity east about a day's sail or an hour's by jet boat ride from St. Andrews.
 
 ![Whales in the bay of fundi](https://user-images.githubusercontent.com/13930968/65389753-689b9300-dd27-11e9-832b-a9275bfc8454.jpeg)
 We definitely found them. 
 
 ![Fast Whale boat Lo and J](https://user-images.githubusercontent.com/13930968/65389754-689b9300-dd27-11e9-80f9-17b8365f801a.jpeg)
-This was a fun trip. Not only did we see SO MANY WHALES, but we for those used to always taking the slow boat, this was an exciting ride. 
+This was a fun trip. Not only did we see SO MANY WHALES, but for those used to always taking the slow boat, this was an exciting ride. 
 
 ![two whale tails](https://user-images.githubusercontent.com/13930968/65389755-689b9300-dd27-11e9-99eb-e7c083dfc241.jpeg)
 
-![Jacob and I in our survival suits](https://user-images.githubusercontent.com/13930968/65389756-689b9300-dd27-11e9-991e-5b08c5e000d9.jpeg)
+![Jacob and me in our survival suits](https://user-images.githubusercontent.com/13930968/65389756-689b9300-dd27-11e9-991e-5b08c5e000d9.jpeg)
 Going that fast was chilly... we had to bundle up. 
 
-It is starting to get pretty chilly up here, so it was time to hop south. Northeast Harbor, Maine and Acadia National Park made such a good impression on us, that we decided to hop back to there on the way down. 
+It is starting to get pretty cols up here, so it was time to hop south. Northeast Harbor, Maine and Acadia National Park made such a good impression on us, that we decided to hop back to there on the way down. 
 
 ![flowers in Northeast Harbor](https://user-images.githubusercontent.com/13930968/65389762-69342980-dd27-11e9-98f6-2342d2a650f7.jpeg)
 back in Maine
@@ -159,13 +159,13 @@ back in Maine
 shopping in Bar Harbor
 
 ![Lo in an out school class](https://user-images.githubusercontent.com/13930968/65389766-69342980-dd27-11e9-9c6d-14302634ec22.jpeg)
-Lorelei taking an Outschool bookclub in the marina yard. 
+Lorelei taking an Outschool bookclub in the marina yard
 
 ![Lo climbing bee hive trail](https://user-images.githubusercontent.com/13930968/65389767-69342980-dd27-11e9-8ab0-12be3f6e0794.jpeg)
-We love the hiking in Acadia! Acadia has a bunch of trails with rungs and ladders drilled into cliffs. The first one we did last month was exciting, but this one was beyond! I was truly terrified a couple of times, but the thought of having to go back down was scarier then going on, and the sense of accomplishment at the end made it worth the fear.
+We love the hiking in Acadia! They have a bunch of trails with rungs and ladders drilled into cliffs. The first one we did last month was exciting, but this one was beyond! I was truly terrified a couple of times, but the thought of having to go back down was scarier than going on, and the sense of accomplishment at the end made it all worth it.
 
 ![ledge of bee hive](https://user-images.githubusercontent.com/13930968/65389768-69342980-dd27-11e9-81e5-43de98a7d73f.jpeg)
-parts of the trail had us walking on a narrow ledge high in the air. 
+Parts of the trail had us walking on a narrow ledge high in the air. 
 
 ![view from the top](https://user-images.githubusercontent.com/13930968/65389769-69342980-dd27-11e9-8852-e8773c44d4ab.jpeg)
 gorgeous views from the top
