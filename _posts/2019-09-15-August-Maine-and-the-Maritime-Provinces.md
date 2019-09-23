@@ -4,7 +4,7 @@ title: August - Maine and the Maritime Provinces
 date: 2019-09-15
 author: April
 tags:  Acadia, Maine, Maritimes, Anne, New Brunswick, Down East, Mistake Island
-thumb: https://user-images.githubusercontent.com/13930968/65389732-66d1cf80-dd27-11e9-9478-192ae20b615b.jpeg)
+thumb: https://user-images.githubusercontent.com/13930968/65389732-66d1cf80-dd27-11e9-9478-192ae20b615b.jpeg
 backgrounds:
 - https://user-images.githubusercontent.com/13930968/63371468-8ce80680-c35a-11e9-98f4-92fdf59f7601.jpeg
 - https://user-images.githubusercontent.com/13930968/63371497-91acba80-c35a-11e9-92f9-d375a8877f0b.jpeg
