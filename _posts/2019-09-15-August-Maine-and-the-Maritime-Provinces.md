@@ -150,7 +150,7 @@ This was a fun trip. Not only did we see SO MANY WHALES, but for those used to a
 ![Jacob and me in our survival suits](https://user-images.githubusercontent.com/13930968/65389756-689b9300-dd27-11e9-991e-5b08c5e000d9.jpeg)
 Going that fast was chilly... we had to bundle up. 
 
-It is starting to get pretty cols up here, so it was time to hop south. Northeast Harbor, Maine and Acadia National Park made such a good impression on us, that we decided to hop back to there on the way down. 
+It is starting to get pretty cold up here, so it was time to hop south. Northeast Harbor, Maine and Acadia National Park made such a good impression on us, that we decided to hop back to there on the way down. 
 
 ![flowers in Northeast Harbor](https://user-images.githubusercontent.com/13930968/65389762-69342980-dd27-11e9-98f6-2342d2a650f7.jpeg)
 back in Maine
