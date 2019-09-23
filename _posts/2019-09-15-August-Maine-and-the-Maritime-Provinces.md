@@ -20,7 +20,7 @@ The kids got home from the trip to Chicago just in time for a kid boat party. We
 The whole gang at our new favorite fried chicken patio party, Milk and Honey.
 
 ![blueberry feast with Rev](https://user-images.githubusercontent.com/13930968/63371471-8d809d00-c35a-11e9-8295-a5d322cfc3de.jpeg)
-playing in the woods by the marina with their pal Rev from Twig. 
+playing in the woods by the marina with their pal Rev from Twig
 
 ![Shakespeare in the park](https://user-images.githubusercontent.com/13930968/63371472-8d809d00-c35a-11e9-8010-4035ff83a311.jpeg)
 Northeast Harbor had lots of fun things to do, including Shakespeare in the Park -- A Midsummer Night's Dream. 
@@ -49,7 +49,7 @@ We landed on beautiful Mistake Island for a week completely to ourselves. After 
 ![girls kayaking at mistake](https://user-images.githubusercontent.com/13930968/63371492-91142400-c35a-11e9-998f-7a3852115564.jpeg)
 
 ![seal nature journal](https://user-images.githubusercontent.com/13930968/63371494-91acba80-c35a-11e9-9fba-f0907e5c6315.jpeg)
-A week to ourselves in this beautiful harbir has inspired lots of journaling, berry-picking, and baking.
+A week to ourselves in this beautiful harbor has inspired lots of journaling, berry-picking, and baking.
 
 ![blueberry nature journal](https://user-images.githubusercontent.com/13930968/63371495-91acba80-c35a-11e9-86fd-a17b7bd8439e.jpeg)
 
