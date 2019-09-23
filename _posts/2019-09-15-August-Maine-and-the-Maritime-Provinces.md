@@ -1,5 +1,5 @@
 ---
-layout: posts
+layout: post
 title: August - Maine and the Maritime Provinces
 date: 2019-09-15
 author: April
