@@ -1,6 +1,6 @@
 ---
 layout: post
-title: On Broadway by Lorelei
+title: On Broadway and Off by Lorelei
 date: 2019-10-06
 author: Lorelei
 tags: Broadway, Off Broadway, Harry Potter, Blue Man, Times Square
