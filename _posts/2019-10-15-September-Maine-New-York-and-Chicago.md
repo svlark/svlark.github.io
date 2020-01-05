@@ -27,11 +27,11 @@ We found a family of loons on the lake.
 
 We left Acadia and made a straight shot through the Cape Cod Canal towards New York City. 
 
-Along the way we had the [MOST amazing whale encounter](https://youtu.be/U8zEv9GZHd0)! We had feeding humpback whales on both sides of the boat. 
+Along the way we had the [MOST amazing whale encounter](https://youtu.be/U8zEv9GZHd0)! We had humpback feeding whales on both sides of the boat. 
 
 ![Whale](https://user-images.githubusercontent.com/13930968/71780393-2887b580-2f90-11ea-8ddf-1f9396332b67.jpeg)
 
-After three days at sea, we anchored off of Staton Island so that we could start up the Hudson River first thing in the morning. 
+After three days at sea, we anchored off of Staten Island so that we could start up the Hudson River first thing in the morning. 
 
 ![Navionics](https://user-images.githubusercontent.com/13930968/71780392-2887b580-2f90-11ea-86f9-cacb1eafd545.jpeg)
 More boats on a single screen then we have EVER seen! 
