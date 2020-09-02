@@ -1,7 +1,7 @@
 ---
 layout: post
 title: October - Chicago, New York and New Jersey
-date: 2020-11-15
+date: 2019-11-15
 author: April 
 tags: Chicago, braces, New York, New Jersey, boat problems, autopilot 
 thumb: https://user-images.githubusercontent.com/13930968/81184200-20f80d80-8f7e-11ea-9791-01aa90bbb710.jpeg
