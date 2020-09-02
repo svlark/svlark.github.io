@@ -13,7 +13,7 @@ backgrounds:
 ![audrey before and after](https://user-images.githubusercontent.com/13930968/92014800-d022d680-ed1d-11ea-83bb-756a807b0923.jpeg)
 before and after
 
-After 16 months in Braces, Audrey had them taken off! Yay! She will be using Invisalign about half the time now for the unforeseeable future. She is really happy with the results, but funnily enough, she was really liking the look of braces, and misses them too. 
+After 16 months in braces, Audrey had them removed! Yay! She will be using Invisalign at night now for the unforeseeable future. She is really happy with the results, but funnily enough, she was becoming attached to the way she looked in braces, and may have even shed a tear when they were gone. 
 
 ![downtown NYC](https://user-images.githubusercontent.com/13930968/81184207-23f2fe00-8f7e-11ea-94f3-d4a2768b6cdf.jpeg)
 
