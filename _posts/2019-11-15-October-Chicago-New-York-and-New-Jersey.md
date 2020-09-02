@@ -25,7 +25,7 @@ As soon as we got back to New York, GranMiri and Papa joined us on Lark for a vi
 exploring Central Park with Aunt Amy
 
 ![AMNH with Traveler](https://user-images.githubusercontent.com/13930968/81184178-1b022c80-8f7e-11ea-860d-90e86da7c17a.jpeg)
-Bonus! We were even able to hang out with Traveler! 
+Bonus! Traveler's in town! 
 
 
 Our original plan was to skip straight from NYC to Puerto Rico… but boat plans are written in sand and a broken auto pilot had us pull into Cape May, New Jersey instead. 
