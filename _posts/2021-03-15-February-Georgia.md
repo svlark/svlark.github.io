@@ -1,15 +1,15 @@
 ---
 layout: post
-title: February : Georgia
+title: February in Georgia
 date: 2021-03-15
 author: April
-tags: Georgia, salt marsh, driftwood beach, friends 
+tags: Georgia, saltmarsh, driftwoodbeach, friends 
 thumb: https://user-images.githubusercontent.com/13930968/111325162-cf122080-8641-11eb-9ed2-7e394fe24bf1.jpg
-backgrounds: -https://user-images.githubusercontent.com/13930968/111671349-3f11d980-87ef-11eb-9ff2-eec0cea1a300.jpg
--https://user-images.githubusercontent.com/13930968/111242983-9db03b00-85d6-11eb-8e98-0d731ea88b76.jpg
--https://user-images.githubusercontent.com/13930968/111396618-da8f3700-8695-11eb-9087-c038af10663e.jpg
--https://user-images.githubusercontent.com/13930968/111396914-6ef99980-8696-11eb-826e-2bc051478df7.jpg
-
+backgrounds: 
+- https://user-images.githubusercontent.com/13930968/111671349-3f11d980-87ef-11eb-9ff2-eec0cea1a300.jpg
+- https://user-images.githubusercontent.com/13930968/111242983-9db03b00-85d6-11eb-8e98-0d731ea88b76.jpg
+- https://user-images.githubusercontent.com/13930968/111396618-da8f3700-8695-11eb-9087-c038af10663e.jpg
+- https://user-images.githubusercontent.com/13930968/111396914-6ef99980-8696-11eb-826e-2bc051478df7.jpg
 ---
 
 After a long hiatus from writing the blog, I have decided to try again. My hope to catch up from where I left off was getting in the way of me adding anything new at all. Right now, keeping this record of our life feels important too. I’m used to having something to look back on. Social media -- Facebook and Instagram -- were acting like my digital photo albums, giving me a place to store my memories. In this strange time, I find looking at social media so disturbing though, that it is hard to put anything there. I would still like a place to save our memories, and share with friends and family, so I am attempting to blog once again. I’m just going to start where we are now, and hope that I can fill in the gaps later.
