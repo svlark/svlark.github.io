@@ -1,6 +1,6 @@
 ---
 layout: post
-title: George Town by Audrey Champness
+title: George Town by Audrey
 date: 2020-03-25
 author: Audrey
 tags: kids4sail, bahamas, boatkids, boat buddies, bonfire, beach party, regatta, birthday
