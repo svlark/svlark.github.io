@@ -33,7 +33,6 @@ We took Audrey mini-golfing before our annual hibachi feast.
 ![Audrey playing minigolf](https://user-images.githubusercontent.com/13930968/114218758-d58d7280-9937-11eb-8e4e-fa6a645aac2b.jpg)
 
 ![Grampsy and Audrey at minigolf](https://user-images.githubusercontent.com/13930968/114218783-dfaf7100-9937-11eb-8401-5269998d1f29.jpg)
-We took Audrey mini-golfing before our annual hibachi feast.
 
 We rented a fun house with a pool and a game room in Orlando for the occasion! 
 
@@ -117,7 +116,7 @@ plein air painting party
 ![streets of Savannah](https://user-images.githubusercontent.com/13930968/114219097-39b03680-9938-11eb-98fc-3035fa87cc4c.jpg)
 wandering the gorgeous streets of old town Savannah
 
-Back in Brunswick we had manatee stop by the boat. I don’t care how many times you see them, like dolphins or whales… it never gets old. 
+Back in Brunswick we had a manatee stop by the boat. I don’t care how many times you see them, like dolphins or whales… it never gets old. 
 
 ![Manatee in the marina](https://user-images.githubusercontent.com/13930968/114219118-40d74480-9938-11eb-993e-aced833ad5d0.jpg)
 
@@ -177,4 +176,4 @@ by April
 by April ...my attempt at a portrait of Audrey
 
 ![Cordelia NJ Lorelei](https://user-images.githubusercontent.com/13930968/114219566-d2df4d00-9938-11eb-98cb-7998dec3a02f.jpg)
-Lorelei's Nature Journal or Cordelia, GranMiri and Papa's new kitty. 
+Lorelei's Nature Journal of Cordelia, GranMiri and Papa's new kitty. 
