@@ -3,7 +3,7 @@ layout: post
 title: March in Florida and Georgia
 date: 2021-04-15
 author: April
-tags: Georgia, grandparents, birthday, Florida, springs 
+tags: Georgia, grandparents, birthday, Florida, springs  
 thumb: https://user-images.githubusercontent.com/13930968/114218810-e63de880-9937-11eb-9933-7e98b7e6ce35.jpg
 backgrounds: 
 - https://user-images.githubusercontent.com/13930968/114218810-e63de880-9937-11eb-9933-7e98b7e6ce35.jpg
@@ -102,7 +102,7 @@ Audrey has decided that she LOVES St. Patrick’s Day, because it is the day she
 ![turtles on a log](https://user-images.githubusercontent.com/13930968/114219013-2604d000-9938-11eb-879f-e35a06f20790.jpg)
 Hiking through one of the state parks near our boat. We spotted lots of turtles. 
 
-The girls and I decided to take a field trip to Savannah to see the beautiful Forsyth park and do a little Plane Eire art. We also treated ourselves to a tea party. 
+The girls and I decided to take a field trip to Savannah to see the beautiful Forsyth park and do a little plein air art. We also treated ourselves to a tea party. 
 
 ![tea in Savannah](https://user-images.githubusercontent.com/13930968/114219047-2f8e3800-9938-11eb-9b93-df16f18c6b3f.jpg)
 
@@ -111,8 +111,8 @@ The girls and I decided to take a field trip to Savannah to see the beautiful Fo
 ![Forsyth Park fountain](https://user-images.githubusercontent.com/13930968/114219071-34eb8280-9938-11eb-9ea8-157b5a966aac.jpg)
 the fountain in Forsyth Park
 
-![Plein air painting](https://user-images.githubusercontent.com/13930968/114219085-37e67300-9938-11eb-8a60-d79115237acb.jpg)
-Plein Air painting party
+![plein air painting](https://user-images.githubusercontent.com/13930968/114219085-37e67300-9938-11eb-8a60-d79115237acb.jpg)
+plein air painting party
 
 ![streets of Savannah](https://user-images.githubusercontent.com/13930968/114219097-39b03680-9938-11eb-98fc-3035fa87cc4c.jpg)
 wandering the gorgeous streets of old town Savannah
