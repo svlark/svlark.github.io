@@ -79,6 +79,7 @@ playing downtown St. Marys
 ![baby geese](https://user-images.githubusercontent.com/13930968/118015454-47375280-b322-11eb-93e7-e36e356e2308.jpg)
 It's spring! Check out all the babies!
 ![Audrey's Gosling NJ](https://user-images.githubusercontent.com/13930968/118016040-eb20fe00-b322-11eb-8f25-9242d6368cc7.jpg)
+Gosling Nature Journal by Audrey
 
 ![lizard observations](https://user-images.githubusercontent.com/13930968/118015461-47cfe900-b322-11eb-824a-aa2d4ed708d1.jpg)
 Observing a boatyard lizard. Don't worry, he was released shortly after this photo was taken. 
