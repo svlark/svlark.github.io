@@ -11,6 +11,7 @@ backgrounds:
 - https://user-images.githubusercontent.com/13930968/122474245-f81fb580-cf90-11eb-84e6-5b3751de2685.jpg
 - https://user-images.githubusercontent.com/13930968/122474298-0968c200-cf91-11eb-8189-3c69e157a8d7.jpg
 - https://user-images.githubusercontent.com/13930968/124359091-61d6cb00-dbf1-11eb-9483-ebff56e97c7a.jpg
+---
 
 With the boat safely put up in St. Mary's we decided to have a visit with GranMiri and Papa. We spent a week sleeping in the cabin, exploring waterfalls, visiting train exhibits and enjoying the very pleasant weather in the Georgia mountains. 
 
@@ -28,13 +29,13 @@ Taccoa Falls
 ![Cows in Flower Meadow](https://user-images.githubusercontent.com/13930968/122474232-f35b0180-cf90-11eb-9f64-4fedd7cb8c0d.jpg)
 Driving through the surrouding hills
 
-![Chow Ram](https://user-images.githubusercontent.com/13930968/122474237-f3f39800-cf90-11eb-888f-5877b60455be.jpg)
-A visit to Chow Ram Waterfall, complete with hiking trails and lots of swimming holes. 
+![Chau Ram](https://user-images.githubusercontent.com/13930968/122474237-f3f39800-cf90-11eb-888f-5877b60455be.jpg)
+A visit to Chau Ram Waterfall, complete with hiking trails and lots of swimming holes. 
 
-![floating in Chow Ram](https://user-images.githubusercontent.com/13930968/122474241-f655f200-cf90-11eb-85b4-41f202eb2d09.jpg)
+![floating in Chau Ram](https://user-images.githubusercontent.com/13930968/122474241-f655f200-cf90-11eb-85b4-41f202eb2d09.jpg)
 
 ![blue tailed skink](https://user-images.githubusercontent.com/13930968/122474243-f7871f00-cf90-11eb-9514-0eec6c2f9d35.jpg)
-We spotted a Bluetailed Skink at Chow Ram
+We spotted a Bluetailed Skink at Chau Ram
 
 Next stop, the girls and I had a solo roadtrip to Illinois to surprise Grampsy for his birthday while Jacob went to check out a property we'd been eying in Alaska. 
 
@@ -51,10 +52,10 @@ We went on a Mother's Day Hike at Crabtree Nature Center and spotted this cute l
 All dressed up for German food.
 
 ![Lo's new earings](https://user-images.githubusercontent.com/13930968/122474256-fb1aa600-cf90-11eb-9648-0d82199176dd.jpg)
-More big changes, Lorelei got her ear's pierced. 
+More big changes, Lorelei got her ears pierced. 
 
 ![Grampsy grilling for his birthday](https://user-images.githubusercontent.com/13930968/122474260-fbb33c80-cf90-11eb-8379-4185c0ab6668.jpg)
-Once again, Grampsy grilled his own birthday feast. I don't think he minded though, it tasted amazing, which is not what would have happened if I tried to man the grill. 
+Once again, Grampsy grilled his own birthday feast. I don't think he minded though.  It tasted amazing, which is not what would have happened if I tried to man the grill. 
 
 ![Chipmunk on the back porch](https://user-images.githubusercontent.com/13930968/122474262-fce46980-cf90-11eb-92b7-121d79057886.jpg)
 Lots of fun critter spotting from Grampsy's back deck. 
@@ -89,7 +90,7 @@ The Pandolfi's chicken is such a good sport!
 It's always sad saying goodbye! 
 
 ![eating cicadas](https://user-images.githubusercontent.com/13930968/122474300-0a015880-cf91-11eb-94d8-82b2bebb7bb8.jpg)
-On the way we spotted some cicadas! We thought we might miss brood X, but we were in for a real treat, when we found them in droves in Maryland. 
+On the way we spotted some cicadas! We thought we might miss Brood X, but we were in for a real treat, when we found them in droves in Maryland. 
 
 ![cicada in a tree](https://user-images.githubusercontent.com/13930968/122474303-0a99ef00-cf91-11eb-8d6b-2a084f59798a.jpg)
 
@@ -115,12 +116,12 @@ This is the sweet cabin we stay in while visiting.
 ![Waterfall Collage](https://user-images.githubusercontent.com/13930968/122474341-138ac080-cf91-11eb-88f2-541bfc0f883e.jpg)
 There are so many amazing waterfalls to visit near GranMiri and Papa's house. 
 
-![Minnihaha](https://user-images.githubusercontent.com/13930968/122474344-14235700-cf91-11eb-8f75-430dc36c40f5.jpg)
+![Minnehaha](https://user-images.githubusercontent.com/13930968/122474344-14235700-cf91-11eb-8f75-430dc36c40f5.jpg)
 
 ![bridge with papa](https://user-images.githubusercontent.com/13930968/122474350-1685b100-cf91-11eb-8b30-7c3112f946a3.jpg)
 
 ![Plein Air painting](https://user-images.githubusercontent.com/13930968/122474356-17b6de00-cf91-11eb-9b2f-7985a5e402ad.jpg)
-We did a ton of Plein Air painting! The weather was perfect for it, and the setting amazing. 
+We did a ton of plein air painting! The weather was perfect for it, and the setting amazing. 
 
  
 
@@ -149,7 +150,7 @@ by Audrey
 ![Dandelion NJ Audrey](https://user-images.githubusercontent.com/13930968/122474772-ac214080-cf91-11eb-8943-0fd2f4ccaf25.jpg)
 Nature Journal by Audrey
 ![Camping by GranMiri](https://user-images.githubusercontent.com/13930968/122474775-ad526d80-cf91-11eb-87f6-c2bdad78b6c5.jpg)
-GranMiri did a little painting with us too, and created this sweet camping scene. 
+GranMiri did a little painting with us too and created this sweet camping scene. 
 ![Camping by Audrey](https://user-images.githubusercontent.com/13930968/122474776-adeb0400-cf91-11eb-881b-463dbff9c223.jpg)
 by Audrey
 ![Mountain Postcard by Audrey](https://user-images.githubusercontent.com/13930968/122474779-ae839a80-cf91-11eb-8490-699f676e67c3.jpg)
