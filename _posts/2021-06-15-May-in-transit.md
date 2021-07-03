@@ -79,7 +79,7 @@ Jacob joined us in Illinois, and we all started the drive back towards the boat 
 ![Jacob biking](https://user-images.githubusercontent.com/13930968/122474269-ffdf5a00-cf90-11eb-91ee-743667c14bb2.jpg)
 but first Jacob was able to enjoy a week in Illinois. We love riding in the forest preserve just behind my dad's house! 
 
-![Resting with Grampsy after biking(https://user-images.githubusercontent.com/13930968/122474274-01108700-cf91-11eb-9845-154076b05a41.jpg)
+![Resting with Grampsy after biking](https://user-images.githubusercontent.com/13930968/122474274-01108700-cf91-11eb-9845-154076b05a41.jpg)
 
 ![Flower Chicken](https://user-images.githubusercontent.com/13930968/122474278-02da4a80-cf91-11eb-855a-daadb10ddf26.jpg)
 The Pandolfi's chicken is such a good sport! 
